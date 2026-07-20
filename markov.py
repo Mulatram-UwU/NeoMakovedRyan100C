@@ -50,4 +50,4 @@ class model:
             print(tok, end='')
             state = (state[1], nxt)
         print()
-        return s
+        return s+'\n'
