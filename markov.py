@@ -37,19 +37,15 @@ class model:
                 self.p[state][c] += 1
                 self.p1[b][c] += 1
 
-    def run(self, maxlen=200, maxretries=200):
+    def run(self):
         tries = 0
-        while tries < maxretries:
-            s = self._generate(maxlen)
+        while True:
+            s = self._generate(200)
             tries += 1
-            if s not in self.hashset:
+            if s not in self.hashset or tries >= 200:
                 self.hashset.add(s)
-                print(s)
+                print('- '+s)
                 return s + '\n'
-        s = self._generate(maxlen)
-        print(s)
-        return s + '\n'
-
     def _generate(self, maxlen):
         s = ""
         state = (0, 0)
@@ -62,6 +58,8 @@ class model:
             if nxt == 1:
                 break
             tok = self.backward[nxt]
+            print(tok, end="")
             s += tok
             state = (state[1], nxt)
+        print()
         return s
