@@ -4,10 +4,13 @@ from bpe import BPETokenizer
 
 class model:
     def __init__(self, num_merges=300):
+        self.hashset=set()
         self.bpe = BPETokenizer(num_merges=num_merges)
 
     def train(self, datas: list[str]):
         datas = [i.replace('\n', '') for i in datas]
+        for i in datas:
+            self.hashset.add(i)
         self.bpe.train(datas)
         tokenized = [self.bpe.encode(d) for d in datas]
 
@@ -50,4 +53,7 @@ class model:
             print(tok, end='')
             state = (state[1], nxt)
         print()
+        if s in self.hashset:
+            return self.run()
+        self.hashset.add(s)
         return s+'\n'
