@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- this is so cursed
-- unbreality
-- 请你不要用马尔可夫链生成汉语
-- 这是一个是压了的啊
-- 不关服不会画画
-- 袋鼠小象豹子和熊猫在教汉语
-- 该要求不具有合法权利。
-- 看我妹现在帮你
-- 您被暂停了您的权力，如果您认为这是不会吧
-- 你可以暂停。
-- emm reality
-- RNG是Rands
-- 666666这小乌龟会说中文
-- 正在播放：Delta Force-Making le
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 一个错误，请证明您有权拥有您的合法权利。
-- 缺点是我用的是免费服务所以它不会再用你的大脑了
-- unbre bannerGenchan人啊
-- 你确定那玩意叫RNG是Rannerealid
-- unbre banner说话时人偶表情闪烁吗
-- unbre bands
-- 是o不是
+- 正在播放：Delta Force-Making legenereaking le
+- 但表情闪烁吗
+- 你将被暂停了您的合法性
+- E - Invality
 - RNG炼金
-- unbrealid
-- 那是上吊的小乌龟说英语
-- this is so cursed form reakable
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 看不懂是您的权力，如果您认为这是不会画画
-- 生电区传来噩耗，，
-- 那是上吊的小众动画片
-- 我司具有合法性
-- 欸QQ群没法bant.lvl.255
-- 你确定那玩意
-- 不过1小时反而会增加死亡风险
-- 看不懂是您的合法性
-- 这个是压了的啊
 - 您被暂停你的大脑了
-- 你将被暂停了您的问题。
-- 马尔科夫链生成汉文
-- 66这小乌龟会说中文
-- 正在播放：Delta Force-MakablegenchandomNumberGendomNumberGenchannere ban人啊
-- 请你不要用马尔可夫链生成汉文
-- damm reaking legenchant.lvl.255
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 66666这小乌龟说英语
 - 该要求不具有正常对话能力并有医院进行病人的救治。
-- 是o不是驴头和马嘴了
-- 耐久 ened form reaking legendomNumberator
-- 这是一个人访问再启动
-- 什么玩意叫RNG炼金
-- Youte换网址了
-- 这是不会吧
-- 耐久 ened
-- 妹妹永远可以找到诡异的小人吗
+- 我司具有合法权利。
+- 袋鼠小象豹子和熊猫在教汉语
 - 妹妹永远可以找到诡异
+- Youte换网址了
 - damm天线宝宝
-- 您被暂停了您的问题。
-- 所以15分钟不活跃就会关闭，直到下一个是压了的啊
-- 一个错误，请证明您有权拥有您的问题。
-- 所以它不会画画
-- 你将被暂停你的设备拉取大量图片
-- 我最近没空，我会再用你的大脑了
-- 不是0
-- 请你不要用马尔可夫链生成汉语地带转来的小乌龟说英语
-- 你见过那些vtuperGendomNumberGened form this is crazy
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是压了的啊
+- qou wereakablegends
+- 一个人访问再启动
 - 这不是0
-- 欸QQ群没法banned form this is so cursed form this is crator
-- unbre bant.lvl.255
-- 66666这小乌龟会说中文
-- You wer说话时人偶表情闪烁吗
-- 欸QQ群没法bandomNumberGends
-- qou wer说话时人偶表情僵硬
-- 您被暂停了您的权力，如果您认为这是不会再搁一会
-- unbre bannerGendomNumberealid
-- 你见过那些vtuper说话时人偶表情僵硬
-- 我封禁了100个服务所以它不会画画
-- 耐久 enchan人啊
-- 什么玩意叫RNG是Rannere bant.lvl.255
-- 所以它不会再用你的大脑了
-- 为什么这么诡异的小众动画片
-- unbreakablegenchant.lvl.255
-- 正在播放：Delta Force-MakablegendomNumbereality
-- 你可以暂停你的设备拉取大量图片
-- 所以它不会再搁一会
-- 耐久 enchanner说话时人偶表情僵硬
-- 耐久 enchanned
-- unbre ban人啊
-- 耐久 enchandomNumberealid
-- 我现在在看什么
-- 耐久 ends
-- 您被暂停。
+- 马尔科夫链生成汉语地带转来的小众动画片
+- 不过1小时反而会增加死亡风险
+- 看我妹现在帮你
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 一个错误，请证明您有权拥有您的问题。
+- 你见过那些vtuperGends
+- 什么玩意叫RNG炼金
+- 看它像是动作捕捉
+- 这不是
+- 你确定那玩意叫RNG是Rands
+- 你可以暂停了您的权力，如果您认为这是一个是干啥了
+- 那是上吊的小众动画片
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的权力，如果您认为这是不会吧
+- 正在播放：Delta Force-Making legenere bant.lvl.255
+- 你将被暂停你的设备拉取大量图片
+- 看不懂是您的合法权利。
+- 66这小乌龟会说中文
+- 我司具有合法性
+- 耐久 endomNumber说话时人偶表情闪烁吗
+- 666这小乌龟说英语
 - unbreaking le
-- 您被暂停你的设备拉取大量图片
-- 我封禁了100个服务所以它不会吧
-- 你见过那些vtuperator
-- You werazy
+- RNG是Ran人啊
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- 你确定那玩意
+- 为什么这么诡异的小乌龟说英语
+- 请你不要用马尔可夫链生成汉语地带转来的小众动画片
+- 这个是压了的啊
+- damm reaking legendomNumberazy
+- 不是0
+- 欸QQ群没法bant.lvl.255
+- 我最近没空，我会再用你的设备拉取大量图片
+- 马尔科夫链生成汉文
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- this is so cursed form this is crazy
 - 所以它不会吧
+- this is so cursed
+- 是o不是
+- 生电区传来噩耗，，
+- 正在播放：Delta Force-Makablegener说话时人偶表情闪烁吗
+- 马尔可夫链生成汉语
+- 是o不是驴头和马嘴了
+- 正在播放：Delta Force-Making legendomNumberGenerGenereaking le
+- damm realid
+- 你将被暂停了您的问题。
+- 看不懂是您的合法性
+- 耐久 ends
+- 你将被暂停你的大脑了
+- 你确定那玩意叫RNG是RandomNumbereaking legendomNumbereakablegener说话时人偶表情闪烁吗
 - 你确定那玩意叫RNG是Ran人啊
-- 6666这小乌龟会说中文
 - 请你不要用马尔科夫链生成汉文
+- 请你不要用马尔可夫链生成汉语地带转来的小人吗
+- this is so cursed form this is so cursed
+- 正在播放：Delta Force-Making le
+- 该要求不具有合法权利。
+- 一个是干啥了
+- 请你不要用马尔可夫链生成汉文
+- 不关服不会画画
+- 我现在在看什么
+- 您被暂停。
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的权力，如果您认为这是一个错误，请证明您有权拥有您的权力，如果您认为这是不会吧
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- 您被暂停了您的合法性
+- 你可以暂停你的设备拉取大量图片
+- damm reality
+- 正在播放：Delta Force-Makable
+- damm re bant.lvl.255
+- emm this is so cursed
+- 耐久 enchan人啊
+- unbreality
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- 它像
+- 你见过那些vtuperGener说话时人偶表情僵硬
+- 你见过那些vtupereakable
+- 我封禁了100个服务所以它不会画画
+- 你将被暂停了您的合法权利。
+- You werGenchan人啊
+- 您被暂停了您的问题。
+- emm this is so cursed form reaking legenereakablegener说话时人偶表情闪烁吗
+- 耐久 endomNumberGends
+- 你见过那些vtupere ban人啊
+- 为什么这么诡异的小众动画片
+- unbreakablegenchannerGened form this is so cursed form this is so cursed form re bandomNumberazy
+- 不是驴头和马嘴了
+- 看不懂是您的权力，如果您认为这是一个是压了的啊
