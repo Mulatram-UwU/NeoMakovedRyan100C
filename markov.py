@@ -3,7 +3,7 @@ from bpe import BPETokenizer
 
 
 class model:
-    def __init__(self, num_merges=300):
+    def __init__(self, num_merges=5):
         self.hashset=set()
         self.bpe = BPETokenizer(num_merges=num_merges)
 
