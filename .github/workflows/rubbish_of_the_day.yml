@@ -1,6 +1,7 @@
 name: Rubbish of The Day
 on:
     workflow_dispatch:
+    push:
     schedule:
       - cron: "0 16 * * *"
 jobs:
