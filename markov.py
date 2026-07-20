@@ -37,10 +37,23 @@ class model:
                 self.p[state][c] += 1
                 self.p1[b][c] += 1
 
-    def run(self):
+    def run(self, maxlen=200, maxretries=200):
+        tries = 0
+        while tries < maxretries:
+            s = self._generate(maxlen)
+            tries += 1
+            if s not in self.hashset:
+                self.hashset.add(s)
+                print(s)
+                return s + '\n'
+        s = self._generate(maxlen)
+        print(s)
+        return s + '\n'
+
+    def _generate(self, maxlen):
         s = ""
         state = (0, 0)
-        while True:
+        while len(s) < maxlen:
             if state in self.p:
                 counts = self.p[state]
             else:
@@ -50,10 +63,5 @@ class model:
                 break
             tok = self.backward[nxt]
             s += tok
-            print(tok, end='')
             state = (state[1], nxt)
-        print()
-        if s in self.hashset:
-            return self.run()
-        self.hashset.add(s)
-        return s+'\n'
+        return s
