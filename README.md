@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 它像
-- 这不是0
-- unbreakablegened form this is so cursed
-- 欸QQ群没法bands
-- 我封禁了100个服务所以它不会吧
-- 那是上吊的小众动画片
 - RNG炼金
-- 这是一个是压了的啊
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 耐久 enerealid
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- 袋鼠小象豹子和熊猫在教汉语
-- 我最近没空，我会再用你的设备拉取大量图片
-- 不是驴头和马嘴了
-- 这是不会再搁一会
-- qou wer说话时人偶表情闪烁吗
-- 一个错误，请证明您有权拥有您的权力，如果您认为这是不会画画
-- 你可以暂停。
-- damm天线宝宝
-- 一个错误，请证明您有权拥有您的问题。
-- RNG是Ran人啊
-- E - Invality
-- RNG是Rannere banned
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- 生电区传来噩耗，，
-- damm realid
-- 所以它不会画画
-- emm this is so cursed
-- 我最近没空，我会再用你的大脑了
-- Youte换网址了
-- 所以它不会再用你的大脑了
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
-- 为什么这么诡异的小人吗
-- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
-- 看它像是动作捕捉
-- 一个是干啥了
-- 马尔科夫链生成汉语地带转来的小乌龟会说中文
-- 欸QQ群没法banned
-- qou were bant.lvl.255
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是压了的啊
-- 一个错误，请证明您有权拥有您的权力，如果您认为这是不会再用你的设备拉取大量图片
-- 你将被暂停你的大脑了
-- 你确定那玩意叫RNG是Ran人啊
-- 不是0
+- 你见过那些vtuperealid
 - 我现在在看什么
-- 缺点是我用的是免费服务所以它不会吧
-- damm reality
-- 妹妹永远可以找到诡异的小乌龟说英语
-- 正在播放：Delta Force-Makable
-- RNG是Ranned
-- 欸QQ群没法bandomNumber说话时人偶表情闪烁吗
-- 66666这小乌龟说英语
-- 您被暂停了您的合法性
-- 一个人访问再启动
-- 你见过那些vtuperator
-- 你可以暂停了您的合法性
-- 马尔可夫链生成汉语
-- 66这小乌龟会说中文
-- 缺点是我用的是免费服务所以它不会再用你的大脑了
-- 这个是压了的啊
-- 你确定那玩意叫RNG是Ranner说话时人偶表情闪烁吗
-- 正在播放：Delta Force-MakablegendomNumberator
-- unbrealid
-- 这是一个是干啥了
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 不关服不会再搁一会
-- RNG是Rant.lvl.255
-- 欸QQ群没法bandomNumberator
-- 您被暂停。
-- 你确定那玩意
-- damm this is so cursed form reakable
-- 为什么这么诡异的小众动画片
-- 欸QQ群没法bant.lvl.255
-- 那是上吊的小乌龟说英语
-- 一个错误，请证明您有权拥有您的合法性
-- 耐久 endomNumberazy
-- 看不懂是您的合法权利。
-- 看不懂是您的合法性
-- 我司具有合法权利。
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个是干啥了
-- 正在播放：Delta Force-Making legener说话时人偶表情僵硬
-- 不过1小时反而会增加死亡风险
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
-- emm this is crazy
-- unbre banned form this is crator
-- this is so cursed
-- 你确定那玩意叫RNG是Rant.lvl.255
-- 那是上吊的小乌龟会说中文
-- 我司具有合法性
-- 不关服不会再用你的设备拉取大量图片
 - 妹妹永远可以找到诡异
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 什么玩意叫RNG炼金
-- 是o不是
-- 欸QQ群没法bannereaking legends
-- 但表情闪烁吗
+- 它像
+- 欸QQ群没法bant.lvl.255
+- You wer说话时人偶表情僵硬
+- 耐久 enchands
+- 所以它不会再搁一会
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的权力，如果您认为这是不会画画
+- 那是上吊的小乌龟会说中文
+- 生电区传来噩耗，，
+- 看它像是动作捕捉
+- unbrealid
+- 66这小乌龟会说中文
+- 这个是压了的啊
+- 666666这小乌龟说英语
+- 不是驴头和马嘴了
+- 请你不要用马尔科夫链生成汉语地带转来的小人吗
+- 欸QQ群没法banned form realid
+- 那是上吊的小乌龟说英语
+- 正在播放：Delta Force-MakablegendomNumber说话时人偶表情僵硬
+- You werGendomNumberazy
+- 为什么这么诡异的小乌龟说英语
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- E - Invality
+- 你确定那玩意
+- 欸QQ群没法bannerGenchan人啊
 - 请你不要用马尔可夫链生成汉文
-- damm reakable
-- 您被暂停你的设备拉取大量图片
+- damm天线宝宝
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- 看我妹现在帮你
+- 不过1小时反而会增加死亡风险
+- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
+- 耐久 endomNumbereality
+- 那是上吊的小众动画片
+- qou wer说话时人偶表情闪烁吗
+- 这不是
+- 马尔科夫链生成汉文
+- 不是0
+- 一个是干啥了
+- 66666这小乌龟会说中文
+- 袋鼠小象豹子和熊猫在教汉语
+- this is crator
+- 我司具有合法性
+- 你将被暂停了您的合法权利。
+- damm this is crator
+- 不关服不会再搁一会
+- 所以15分钟不活跃就会关闭，直到下一个是压了的啊
+- this is so cursed
+- 一个错误，请证明您有权拥有您的权力，如果您认为这是不会吧
+- 为什么这么诡异的小众动画片
+- 您被暂停。
+- 欸QQ群没法bands
+- 正在播放：Delta Force-Making le
+- 耐久 enchanner说话时人偶表情僵硬
+- 你可以暂停。
+- 你可以暂停了您的权力，如果您认为这是不会吧
+- 为什么这么诡异的小人吗
+- 该要求不具有合法权利。
+- 缺点是我用的是免费服务所以它不会再用你的大脑了
+- 您被暂停你的大脑了
+- 你见过那些vtupereality
+- Youte换网址了
+- 6666这小乌龟说英语
+- 所以它不会画画
+- unbreaking legendomNumber说话时人偶表情僵硬
+- 一个人访问再启动
+- RNG是Rant.lvl.255
+- 你见过那些vtuper说话时人偶表情僵硬
+- this is so cursed form re ban人啊
+- RNG是Ran人啊
+- 你将被暂停你的大脑了
+- 你确定那玩意叫RNG是RandomNumber说话时人偶表情僵硬
+- 请你不要用马尔可夫链生成汉语地带转来的小众动画片
+- damm this is so cursed form reality
+- 666这小乌龟说英语
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- damm reakablegendomNumberator
+- unbre ban人啊
+- 你确定那玩意叫RNG是Ran人啊
+- qou werGends
+- 所以它不会再用你的大脑了
+- 欸QQ群没法bandomNumberGenerazy
+- 一个错误，请证明您有权拥有您的问题。
+- 这是不会吧
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- 这是一个是压了的啊
+- 是o不是
+- 你见过那些vtuperGenerGenchan人啊
+- 66这小乌龟说英语
+- damm this is so cursed form this is crazy
+- 看不懂是您的权力，如果您认为这是一个是干啥了
+- 一个错误，请证明您有权拥有您的合法权利。
+- RNG是Ranned form this is so cursed
+- damm this is so cursed form this is crator
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小乌龟会说中文
+- 但表情闪烁吗
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 正在播放：Delta Force-MakablegenereakablegendomNumber说话时人偶表情僵硬
