@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 我封禁了100个服务所以它不会吧
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- 马尔科夫链生成汉文
-- 我最近没空，我会再用你的设备拉取大量图片
-- 马尔可夫链生成汉语
-- You werator
-- 正在播放：Delta Force-Makablegener说话时人偶表情僵硬
-- 这是不会吧
-- 请你不要用马尔科夫链生成汉语地带转来的小人吗
-- 这不是
-- 请你不要用马尔科夫链生成汉文
-- RNG炼金
+- 我司具有合法权利。
+- 该要求不具有合法权利。
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- 你可以暂停了您的问题。
+- 不关服不会再用你的大脑了
+- 生电区传来噩耗，，
+- 你见过那些vtuperGendomNumber说话时人偶表情闪烁吗
+- 马尔科夫链生成汉语
+- 你将被暂停你的设备拉取大量图片
+- 它像
+- 妹妹永远可以找到诡异的小人吗
+- 666这小乌龟说英语
+- 不过1小时反而会增加死亡风险
+- 该要求不具有正常对话能力并有医院进行病人的救治。
 - 我现在在看什么
+- this is so cursed form reakablegendomNumberazy
+- 您被暂停了您的权力，如果您认为这是不会吧
+- 你见过那些vtuperGenchandomNumber说话时人偶表情僵硬
+- 为什么这么诡异的小人吗
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- E - Invality
+- 我司具有合法性
+- 欸QQ群没法bands
+- 您被暂停你的大脑了
+- 你可以暂停。
+- qou werator
+- 是o不是
+- Youte换网址了
+- 您被暂停。
+- 耐久 enerGenereaking legener说话时人偶表情僵硬
+- qou wer说话时人偶表情僵硬
+- 请你不要用马尔科夫链生成汉文
+- 欸QQ群没法bandomNumberGenerGendomNumberazy
+- 您被暂停了您的合法权利。
+- emm re bands
+- 请你不要用马尔可夫链生成汉语地带转来的小人吗
 - 那是上吊的小众动画片
-- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
-- 我封禁了100个服务所以它不会画画
-- 是o不是驴头和马嘴了
-- emm reakablegenerazy
-- 所以它不会画画
-- 正在播放：Delta Force-Makablegenchanned
+- 你可以暂停了您的合法性
+- 你见过那些vtupereaking le
+- 我封禁了100个服务所以它不会再用你的设备拉取大量图片
 - damm天线宝宝
-- 你将被暂停了您的问题。
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 一个人访问再启动
-- You werGendomNumber说话时人偶表情闪烁吗
+- 这是一个人访问再启动
+- this is so cursed form re banned form this is crazy
+- 正在播放：Delta Force-Making le
+- 正在播放：Delta Force-Makablegened form reality
+- 你将被暂停了您的合法权利。
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- 这不是
+- 你可以暂停你的设备拉取大量图片
+- 看它像是动作捕捉
+- 所以它不会画画
+- 你确定那玩意
+- 这不是0
+- RNG炼金
+- 不是驴头和马嘴了
+- 你见过那些vtupereaking legenchan人啊
+- 我最近没空，我会再用你的设备拉取大量图片
+- 但表情闪烁吗
+- 一个是干啥了
 - 袋鼠小象豹子和熊猫在教汉语
 - 这个是压了的啊
-- 耐久 enchan人啊
-- 你可以暂停你的设备拉取大量图片
-- E - Invality
-- 你将被暂停了您的权力，如果您认为这是不会再用你的大脑了
-- 看它像是动作捕捉
-- 我司具有合法性
-- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 这是不会再搁一会
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 生电区传来噩耗，，
-- 所以它不会再搁一会
-- Youte换网址了
-- 请你不要用马尔可夫链生成汉语
-- 所以15分钟不活跃就会关闭，直到下一个是干啥了
-- 你可以暂停。
-- 66666这小乌龟说英语
-- 我封禁了100个服务所以它不会再用你的大脑了
-- 你见过那些vtuperazy
-- 我司具有合法权利。
-- 你可以暂停了您的权力，如果您认为这是不会画画
-- 它像
-- 耐久 enerGenchant.lvl.255
-- 你见过那些vtupereakablegened
-- 您被暂停。
-- 看我妹现在帮你
-- 是o不是
-- damm this is crator
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个是干啥了
-- qou werealid
-- 看不懂是您的权力，如果您认为这是一个人访问再启动
-- 66这小乌龟会说中文
-- 为什么这么诡异的小乌龟会说中文
-- 所以它不会吧
-- 不是驴头和马嘴了
-- 不关服不会再搁一会
-- 你确定那玩意叫RNG是Ranned form this is crazy
-- RNG是Ran人啊
-- 不关服不会再用你的大脑了
-- 该要求不具有合法权利。
-- 看不懂是您的合法性
-- 这是一个人访问再启动
-- 您被暂停你的大脑了
-- 不过1小时反而会增加死亡风险
-- 看不懂是您的合法权利。
-- 你见过那些vtuperGendomNumberGenerGenchan人啊
-- 一个错误，请证明您有权拥有您的问题。
-- 耐久 ends
-- 我封禁了100个服务所以它不会再搁一会
-- 你将被暂停你的设备拉取大量图片
+- 所以它不会再用你的大脑了
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 不关服不会画画
 - 您被暂停你的设备拉取大量图片
-- 你见过那些vtuperGenchannereakablegendomNumberazy
-- this is so cursed form this is crazy
-- 请你不要用马尔科夫链生成汉语地带转来的小众动画片
-- emm re bands
-- 你见过那些vtuperGends
-- 这不是0
-- 一个是干啥了
-- 马尔科夫链生成汉语
-- 欸QQ群没法bandomNumberGendomNumberator
-- 妹妹永远可以找到诡异的小人吗
-- 你将被暂停你的大脑了
+- damm re bands
+- 看不懂是您的权力，如果您认为这是一个错误，请证明您有权拥有您的权力，如果您认为这是不会吧
+- 欸QQ群没法bant.lvl.255
+- unbreaking legenchant.lvl.255
+- 你见过那些vtuperazy
+- damm reality
+- 看不懂是您的权力，如果您认为这是一个人访问再启动
+- 你可以暂停了您的合法权利。
+- 所以15分钟不活跃就会关闭，直到下一个是干啥了
 - 妹妹永远可以找到诡异
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
-- 不是0
-- qou werazy
-- damm reakable
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
-- RNG是Ranned form this is so cursed form this is crator
-- this is crator
-- 欸QQ群没法banner说话时人偶表情闪烁吗
-- unbrealid
+- 不关服不会再搁一会
+- unbreality
+- 缺点是我用的是免费服务所以它不会画画
+- 欸QQ群没法bandomNumber说话时人偶表情僵硬
+- 一个人访问再启动
+- emm this is crazy
+- unbre banned form this is crazy
+- 马尔科夫链生成汉语地带转来的小众动画片
+- 耐久 ened form this is so cursed form this is crazy
+- damm this is so cursed form this is crazy
+- 请你不要用马尔可夫链生成汉文
+- RNG是Rands
+- 你见过那些vtuperGends
+- damm re ban人啊
+- 马尔科夫链生成汉文
+- 这是不会再用你的大脑了
+- 你将被暂停了您的合法性
+- 欸QQ群没法bandomNumberazy
+- 看不懂是您的权力，如果您认为这是不会再用你的设备拉取大量图片
+- 请你不要用马尔可夫链生成汉语
+- this is so cursed form this is so cursed
+- 你见过那些vtuper说话时人偶表情僵硬
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- unbre ban人啊
+- 看不懂是您的合法权利。
