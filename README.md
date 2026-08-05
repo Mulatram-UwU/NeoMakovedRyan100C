@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 我司具有合法权利。
 - 该要求不具有合法权利。
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
-- 你可以暂停了您的问题。
+- 欸QQ群没法banned form this is crazy
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
+- You werator
 - 不关服不会再用你的大脑了
+- damm天线宝宝
+- 袋鼠小象豹子和熊猫在教汉语
+- 看不懂是您的权力，如果您认为这是不会吧
+- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
+- 耐久 ened form re banned form this is so cursed form reakablegenchant.lvl.255
+- RNG是Rannerator
+- RNG炼金
+- You wer说话时人偶表情闪烁吗
+- 666666666这小乌龟会说中文
+- unbreality
+- 你见过那些vtuperGendomNumberazy
+- 所以它不会再搁一会
+- 请你不要用马尔科夫链生成汉文
+- 为什么这么诡异的小众动画片
+- 我封禁了100个服务所以它不会再用你的大脑了
+- Youte换网址了
+- 这是不会吧
+- 欸QQ群没法bandomNumberator
+- 你确定那玩意叫RNG是Ran人啊
+- 耐久 ened
+- 不关服不会画画
+- 66这小乌龟会说中文
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- 66这小乌龟说英语
+- 这不是
+- 妹妹永远可以找到诡异
+- unbre ban人啊
 - 生电区传来噩耗，，
-- 你见过那些vtuperGendomNumber说话时人偶表情闪烁吗
-- 马尔科夫链生成汉语
-- 你将被暂停你的设备拉取大量图片
-- 它像
-- 妹妹永远可以找到诡异的小人吗
-- 666这小乌龟说英语
+- 不是0
+- 看我妹现在帮你
+- this is so cursed
 - 不过1小时反而会增加死亡风险
+- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
+- emm this is crazy
+- 所以它不会吧
+- 欸QQ群没法bands
 - 该要求不具有正常对话能力并有医院进行病人的救治。
 - 我现在在看什么
-- this is so cursed form reakablegendomNumberazy
-- 您被暂停了您的权力，如果您认为这是不会吧
-- 你见过那些vtuperGenchandomNumber说话时人偶表情僵硬
-- 为什么这么诡异的小人吗
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- E - Invality
-- 我司具有合法性
-- 欸QQ群没法bands
-- 您被暂停你的大脑了
-- 你可以暂停。
-- qou werator
+- 耐久 enchanned form this is so cursed form reakable
 - 是o不是
-- Youte换网址了
-- 您被暂停。
-- 耐久 enerGenereaking legener说话时人偶表情僵硬
-- qou wer说话时人偶表情僵硬
-- 请你不要用马尔科夫链生成汉文
-- 欸QQ群没法bandomNumberGenerGendomNumberazy
-- 您被暂停了您的合法权利。
-- emm re bands
-- 请你不要用马尔可夫链生成汉语地带转来的小人吗
-- 那是上吊的小众动画片
-- 你可以暂停了您的合法性
-- 你见过那些vtupereaking le
-- 我封禁了100个服务所以它不会再用你的设备拉取大量图片
-- damm天线宝宝
-- 这是一个人访问再启动
-- this is so cursed form re banned form this is crazy
-- 正在播放：Delta Force-Making le
-- 正在播放：Delta Force-Makablegened form reality
-- 你将被暂停了您的合法权利。
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- 这不是
-- 你可以暂停你的设备拉取大量图片
-- 看它像是动作捕捉
-- 所以它不会画画
-- 你确定那玩意
-- 这不是0
-- RNG炼金
-- 不是驴头和马嘴了
-- 你见过那些vtupereaking legenchan人啊
-- 我最近没空，我会再用你的设备拉取大量图片
-- 但表情闪烁吗
-- 一个是干啥了
-- 袋鼠小象豹子和熊猫在教汉语
-- 这个是压了的啊
-- 所以它不会再用你的大脑了
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 不关服不会画画
-- 您被暂停你的设备拉取大量图片
-- damm re bands
-- 看不懂是您的权力，如果您认为这是一个错误，请证明您有权拥有您的权力，如果您认为这是不会吧
-- 欸QQ群没法bant.lvl.255
-- unbreaking legenchant.lvl.255
-- 你见过那些vtuperazy
-- damm reality
-- 看不懂是您的权力，如果您认为这是一个人访问再启动
-- 你可以暂停了您的合法权利。
-- 所以15分钟不活跃就会关闭，直到下一个是干啥了
-- 妹妹永远可以找到诡异
-- 不关服不会再搁一会
-- unbreality
-- 缺点是我用的是免费服务所以它不会画画
-- 欸QQ群没法bandomNumber说话时人偶表情僵硬
-- 一个人访问再启动
-- emm this is crazy
-- unbre banned form this is crazy
-- 马尔科夫链生成汉语地带转来的小众动画片
-- 耐久 ened form this is so cursed form this is crazy
-- damm this is so cursed form this is crazy
-- 请你不要用马尔可夫链生成汉文
+- 6666这小乌龟说英语
+- 欸QQ群没法bandomNumberGendomNumberGends
 - RNG是Rands
-- 你见过那些vtuperGends
-- damm re ban人啊
-- 马尔科夫链生成汉文
-- 这是不会再用你的大脑了
-- 你将被暂停了您的合法性
-- 欸QQ群没法bandomNumberazy
-- 看不懂是您的权力，如果您认为这是不会再用你的设备拉取大量图片
+- 你可以暂停了您的合法权利。
+- 为什么这么诡异的小乌龟说英语
+- qou werGendomNumber说话时人偶表情闪烁吗
+- E - Invality
+- 您被暂停了您的合法权利。
+- 但表情闪烁吗
+- 看不懂是您的合法性
+- 这个是压了的啊
+- 你将被暂停你的设备拉取大量图片
+- 看不懂是您的权力，如果您认为这是一个人访问再启动
+- RNG是Ranned form this is so cursed
+- 我最近没空，我会再用你的设备拉取大量图片
+- 看它像是动作捕捉
+- 请你不要用马尔可夫链生成汉文
+- 正在播放：Delta Force-Making legenchannerazy
+- 你确定那玩意
+- qou werGened
+- 一个错误，请证明您有权拥有您的权力，如果您认为这是一个错误，请证明您有权拥有您的合法性
+- 你将被暂停你的大脑了
+- 我最近没空，我会再用你的大脑了
 - 请你不要用马尔可夫链生成汉语
-- this is so cursed form this is so cursed
+- 正在播放：Delta Force-Makablegened form this is crazy
+- this is crator
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- 您被暂停了您的问题。
+- 正在播放：Delta Force-Makable
+- 你可以暂停。
+- You were bant.lvl.255
+- 欸QQ群没法bant.lvl.255
+- qou wer说话时人偶表情僵硬
+- 看不懂是您的权力，如果您认为这是一个是压了的啊
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
+- 666666这小乌龟会说中文
+- 妹妹永远可以找到诡异的小乌龟说英语
+- 不是驴头和马嘴了
+- 马尔科夫链生成汉语地带转来的小众动画片
+- emm this is so cursed
+- damm re bands
+- emm this is crator
+- 我司具有合法性
+- 你确定那玩意叫RNG是Rant.lvl.255
 - 你见过那些vtuper说话时人偶表情僵硬
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- unbre ban人啊
-- 看不懂是您的合法权利。
+- 是o不是驴头和马嘴了
+- 一个人访问再启动
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- 这不是0
+- 你将被暂停了您的合法权利。
+- 为什么这么诡异的小人吗
+- 耐久 enchan人啊
+- RNG是Ranned form this is crazy
+- 你可以暂停你的设备拉取大量图片
