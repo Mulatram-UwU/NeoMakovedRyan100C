@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 该要求不具有合法权利。
-- 欸QQ群没法banned form this is crazy
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
-- You werator
-- 不关服不会再用你的大脑了
-- damm天线宝宝
-- 袋鼠小象豹子和熊猫在教汉语
-- 看不懂是您的权力，如果您认为这是不会吧
-- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
-- 耐久 ened form re banned form this is so cursed form reakablegenchant.lvl.255
-- RNG是Rannerator
-- RNG炼金
-- You wer说话时人偶表情闪烁吗
-- 666666666这小乌龟会说中文
-- unbreality
-- 你见过那些vtuperGendomNumberazy
-- 所以它不会再搁一会
-- 请你不要用马尔科夫链生成汉文
-- 为什么这么诡异的小众动画片
-- 我封禁了100个服务所以它不会再用你的大脑了
-- Youte换网址了
-- 这是不会吧
-- 欸QQ群没法bandomNumberator
-- 你确定那玩意叫RNG是Ran人啊
-- 耐久 ened
-- 不关服不会画画
-- 66这小乌龟会说中文
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- 66这小乌龟说英语
-- 这不是
-- 妹妹永远可以找到诡异
-- unbre ban人啊
-- 生电区传来噩耗，，
-- 不是0
-- 看我妹现在帮你
-- this is so cursed
-- 不过1小时反而会增加死亡风险
-- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
-- emm this is crazy
-- 所以它不会吧
-- 欸QQ群没法bands
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 我现在在看什么
-- 耐久 enchanned form this is so cursed form reakable
-- 是o不是
-- 6666这小乌龟说英语
-- 欸QQ群没法bandomNumberGendomNumberGends
-- RNG是Rands
-- 你可以暂停了您的合法权利。
-- 为什么这么诡异的小乌龟说英语
-- qou werGendomNumber说话时人偶表情闪烁吗
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是压了的啊
+- 正在播放：Delta Force-MakablegendomNumber说话时人偶表情闪烁吗
+- 看不懂是您的合法权利。
+- 它像
 - E - Invality
-- 您被暂停了您的合法权利。
-- 但表情闪烁吗
-- 看不懂是您的合法性
-- 这个是压了的啊
-- 你将被暂停你的设备拉取大量图片
-- 看不懂是您的权力，如果您认为这是一个人访问再启动
-- RNG是Ranned form this is so cursed
-- 我最近没空，我会再用你的设备拉取大量图片
-- 看它像是动作捕捉
-- 请你不要用马尔可夫链生成汉文
-- 正在播放：Delta Force-Making legenchannerazy
-- 你确定那玩意
-- qou werGened
-- 一个错误，请证明您有权拥有您的权力，如果您认为这是一个错误，请证明您有权拥有您的合法性
-- 你将被暂停你的大脑了
-- 我最近没空，我会再用你的大脑了
-- 请你不要用马尔可夫链生成汉语
-- 正在播放：Delta Force-Makablegened form this is crazy
-- this is crator
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
-- 您被暂停了您的问题。
-- 正在播放：Delta Force-Makable
-- 你可以暂停。
-- You were bant.lvl.255
-- 欸QQ群没法bant.lvl.255
-- qou wer说话时人偶表情僵硬
-- 看不懂是您的权力，如果您认为这是一个是压了的啊
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
-- 666666这小乌龟会说中文
-- 妹妹永远可以找到诡异的小乌龟说英语
-- 不是驴头和马嘴了
-- 马尔科夫链生成汉语地带转来的小众动画片
-- emm this is so cursed
-- damm re bands
-- emm this is crator
-- 我司具有合法性
-- 你确定那玩意叫RNG是Rant.lvl.255
-- 你见过那些vtuper说话时人偶表情僵硬
-- 是o不是驴头和马嘴了
-- 一个人访问再启动
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- 这不是0
-- 你将被暂停了您的合法权利。
-- 为什么这么诡异的小人吗
-- 耐久 enchan人啊
-- RNG是Ranned form this is crazy
+- 你确定那玩意叫RNG是RannerGened
+- 妹妹永远可以找到诡异的小乌龟会说中文
+- 不是0
+- 这是一个是干啥了
+- 我现在在看什么
+- 所以它不会再用你的大脑了
 - 你可以暂停你的设备拉取大量图片
+- 不关服不会画画
+- 这个是压了的啊
+- damm reaking le
+- damm this is so cursed form this is crator
+- 你可以暂停。
+- Youte换网址了
+- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
+- 欸QQ群没法bandomNumber说话时人偶表情闪烁吗
+- 请你不要用马尔可夫链生成汉语
+- 袋鼠小象豹子和熊猫在教汉语
+- 正在播放：Delta Force-Makablegener说话时人偶表情闪烁吗
+- 什么玩意叫RNG炼金
+- 6666666666这小乌龟说英语
+- 你见过那些vtuperazy
+- 这不是
+- 我最近没空，我会再用你的设备拉取大量图片
+- 你将被暂停了您的权力，如果您认为这是一个错误，请证明您有权拥有您的合法权利。
+- RNG炼金
+- RNG是Rant.lvl.255
+- 那是上吊的小乌龟说英语
+- 这不是0
+- 为什么这么诡异的小人吗
+- 所以它不会吧
+- unbreaking legenchant.lvl.255
+- 缺点是我用的是免费服务所以它不会吧
+- 这是不会再搁一会
+- emm re bands
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- damm this is so cursed form reaking legenchant.lvl.255
+- 生电区传来噩耗，，
+- 但表情闪烁吗
+- 我封禁了100个服务所以它不会吧
+- 您被暂停。
+- 马尔可夫链生成汉语
+- 妹妹永远可以找到诡异
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- 你见过那些vtupere bands
+- 不是驴头和马嘴了
+- 所以它不会画画
+- 看它像是动作捕捉
+- 看我妹现在帮你
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 正在播放：Delta Force-Makable
+- 这是不会再用你的大脑了
+- 66这小乌龟说英语
+- 这是不会吧
+- 看不懂是您的权力，如果您认为这是不会画画
+- 所以15分钟不活跃就会关闭，直到下一个是压了的啊
+- 什么玩意叫RNG是Ran人啊
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- 你见过那些vtupereakable
+- 你将被暂停了您的合法性
+- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- 你将被暂停你的设备拉取大量图片
+- 你确定那玩意
+- emm re bant.lvl.255
+- 是o不是
+- 请你不要用马尔可夫链生成汉文
+- 是o不是驴头和马嘴了
+- 耐久 enchanned
+- damm天线宝宝
+- emm reaking legends
+- emm reakable
+- qou werGends
+- 你确定那玩意叫RNG是Ranned
+- 我司具有合法性
+- 一个人访问再启动
+- 马尔科夫链生成汉语
+- emm this is crazy
+- 这是一个人访问再启动
+- qou wer说话时人偶表情闪烁吗
+- You werator
+- 为什么这么诡异的小众动画片
+- damm reality
+- this is so cursed
+- 您被暂停了您的合法性
+- 看不懂是您的权力，如果您认为这是一个是压了的啊
+- 您被暂停你的大脑了
+- 马尔科夫链生成汉文
+- 一个是干啥了
+- You werGened form reality
+- 您被暂停了您的问题。
+- 66这小乌龟会说中文
+- 你见过那些vtupere bannerGendomNumbere ban人啊
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法权利。
+- 不过1小时反而会增加死亡风险
