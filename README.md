@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是压了的啊
-- 正在播放：Delta Force-MakablegendomNumber说话时人偶表情闪烁吗
-- 看不懂是您的合法权利。
-- 它像
-- E - Invality
-- 你确定那玩意叫RNG是RannerGened
-- 妹妹永远可以找到诡异的小乌龟会说中文
-- 不是0
-- 这是一个是干啥了
-- 我现在在看什么
-- 所以它不会再用你的大脑了
-- 你可以暂停你的设备拉取大量图片
-- 不关服不会画画
-- 这个是压了的啊
-- damm reaking le
-- damm this is so cursed form this is crator
-- 你可以暂停。
-- Youte换网址了
-- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
-- 欸QQ群没法bandomNumber说话时人偶表情闪烁吗
-- 请你不要用马尔可夫链生成汉语
-- 袋鼠小象豹子和熊猫在教汉语
-- 正在播放：Delta Force-Makablegener说话时人偶表情闪烁吗
 - 什么玩意叫RNG炼金
-- 6666666666这小乌龟说英语
-- 你见过那些vtuperazy
-- 这不是
-- 我最近没空，我会再用你的设备拉取大量图片
-- 你将被暂停了您的权力，如果您认为这是一个错误，请证明您有权拥有您的合法权利。
-- RNG炼金
-- RNG是Rant.lvl.255
-- 那是上吊的小乌龟说英语
-- 这不是0
-- 为什么这么诡异的小人吗
-- 所以它不会吧
-- unbreaking legenchant.lvl.255
-- 缺点是我用的是免费服务所以它不会吧
 - 这是不会再搁一会
-- emm re bands
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- damm this is so cursed form reaking legenchant.lvl.255
-- 生电区传来噩耗，，
+- 请你不要用马尔科夫链生成汉语地带转来的小乌龟说英语
+- damm this is crator
+- 不是0
+- 请你不要用马尔科夫链生成汉文
 - 但表情闪烁吗
-- 我封禁了100个服务所以它不会吧
-- 您被暂停。
-- 马尔可夫链生成汉语
-- 妹妹永远可以找到诡异
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 你见过那些vtupere bands
-- 不是驴头和马嘴了
-- 所以它不会画画
-- 看它像是动作捕捉
-- 看我妹现在帮你
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 正在播放：Delta Force-Makable
-- 这是不会再用你的大脑了
-- 66这小乌龟说英语
-- 这是不会吧
-- 看不懂是您的权力，如果您认为这是不会画画
-- 所以15分钟不活跃就会关闭，直到下一个是压了的啊
-- 什么玩意叫RNG是Ran人啊
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 你见过那些vtupereakable
-- 你将被暂停了您的合法性
-- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
-- 你将被暂停你的设备拉取大量图片
-- 你确定那玩意
-- emm re bant.lvl.255
-- 是o不是
+- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
+- 你见过那些vtupereakablegenerator
+- 这个是压了的啊
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- 你可以暂停。
+- emm realid
 - 请你不要用马尔可夫链生成汉文
-- 是o不是驴头和马嘴了
-- 耐久 enchanned
-- damm天线宝宝
-- emm reaking legends
-- emm reakable
-- qou werGends
-- 你确定那玩意叫RNG是Ranned
-- 我司具有合法性
-- 一个人访问再启动
-- 马尔科夫链生成汉语
+- 你确定那玩意
+- RNG炼金
+- 该要求不具有合法权利。
+- 不关服不会画画
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- 你见过那些vtuperazy
 - emm this is crazy
-- 这是一个人访问再启动
-- qou wer说话时人偶表情闪烁吗
-- You werator
-- 为什么这么诡异的小众动画片
-- damm reality
-- this is so cursed
-- 您被暂停了您的合法性
-- 看不懂是您的权力，如果您认为这是一个是压了的啊
-- 您被暂停你的大脑了
-- 马尔科夫链生成汉文
-- 一个是干啥了
-- You werGened form reality
+- 不是驴头和马嘴了
+- 是o不是驴头和马嘴了
 - 您被暂停了您的问题。
-- 66这小乌龟会说中文
-- 你见过那些vtupere bannerGendomNumbere ban人啊
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法权利。
-- 不过1小时反而会增加死亡风险
+- 正在播放：Delta Force-Makablegenchannerazy
+- damm天线宝宝
+- 正在播放：Delta Force-Making legenchant.lvl.255
+- You wereaking legenerazy
+- 正在播放：Delta Force-MakablegenerGenerGendomNumberazy
+- 它像
+- 我封禁了100个服务所以它不会画画
+- emm this is so cursed form this is crator
+- 耐久 ened form this is crator
+- 正在播放：Delta Force-Making le
+- emm reaking legened
+- 袋鼠小象豹子和熊猫在教汉语
+- 看不懂是您的权力，如果您认为这是一个错误，请证明您有权拥有您的权力，如果您认为这是一个人访问再启动
+- 看它像是动作捕捉
+- 这是一个人访问再启动
+- E - Invality
+- 您被暂停了您的权力，如果您认为这是不会再搁一会
+- 是o不是
+- You werazy
+- damm reality
+- 为什么这么诡异的小乌龟会说中文
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 看我妹现在帮你
+- 看不懂是您的合法权利。
+- 妹妹永远可以找到诡异的小乌龟说英语
+- 这是一个是干啥了
+- damm re bant.lvl.255
+- 耐久 ened
+- Youte换网址了
+- 正在播放：Delta Force-Makablegenerealid
+- 马尔科夫链生成汉语地带转来的小人吗
+- 你将被暂停你的大脑了
+- 你见过那些vtupere ban人啊
+- 生电区传来噩耗，，
+- 妹妹永远可以找到诡异的小人吗
+- 为什么这么诡异的小众动画片
+- 正在播放：Delta Force-Making legendomNumber说话时人偶表情僵硬
+- 你确定那玩意叫RNG是RannerGendomNumberazy
+- 那是上吊的小众动画片
+- 66这小乌龟说英语
+- 你可以暂停了您的权力，如果您认为这是一个人访问再启动
+- this is so cursed
+- 缺点是我用的是免费服务所以它不会再用你的大脑了
+- damm re ban人啊
+- 正在播放：Delta Force-Making legenchanned
+- 6666666这小乌龟会说中文
+- 缺点是我用的是免费服务所以它不会吧
+- RNG是Ran人啊
+- 我最近没空，我会再用你的大脑了
+- 你可以暂停了您的权力，如果您认为这是一个错误，请证明您有权拥有您的合法性
+- 正在播放：Delta Force-Makable
+- 不关服不会再搁一会
+- unbreaking le
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- 您被暂停。
+- 请你不要用马尔可夫链生成汉语
+- 这不是
+- 所以它不会画画
+- 马尔科夫链生成汉文
+- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
+- 你见过那些vtupereality
+- 那是上吊的小乌龟会说中文
+- 欸QQ群没法banned
+- unbreality
+- 所以15分钟不活跃就会关闭，直到下一个是干啥了
+- emm reakablegenchant.lvl.255
+- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- 这是不会吧
+- 什么玩意叫RNG是Ranned form reality
+- 666这小乌龟说英语
+- 看不懂是您的权力，如果您认为这是一个是压了的啊
+- 一个人访问再启动
+- 耐久 enchanned form this is crazy
+- emm this is so cursed
+- qou wer说话时人偶表情僵硬
