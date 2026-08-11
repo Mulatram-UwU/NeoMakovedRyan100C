@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
+- emm reakablegendomNumberGends
 - 你确定那玩意叫RNG是Ran人啊
-- 那是上吊的小乌龟会说中文
-- 欸QQ群没法bant.lvl.255
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- qou werazy
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
-- unbreakablegenchanned form reakable
-- 这是不会再用你的大脑了
-- damm this is crator
-- 我最近没空，我会再用你的设备拉取大量图片
-- 您被暂停。
-- this is crator
-- RNG炼金
-- 那是上吊的小众动画片
-- 这不是0
-- 这不是
-- 不过1小时反而会增加死亡风险
-- damm天线宝宝
-- 这是不会吧
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的权力，如果您认为这是不会画画
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- 正在播放：Delta Force-Making le
 - 所以它不会吧
-- 耐久 endomNumber说话时人偶表情僵硬
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 你确定那玩意叫RNG是Rannere bant.lvl.255
-- damm reakable
-- 请你不要用马尔可夫链生成汉文
-- 你将被暂停你的大脑了
-- emm this is so cursed
-- 是o不是
-- 它像
-- this is so cursed
-- E - Invality
-- 为什么这么诡异的小众动画片
-- 耐久 enerazy
-- 这是不会再搁一会
-- qou werator
-- 我现在在看什么
-- 这个是压了的啊
-- 我最近没空，我会再用你的大脑了
-- You werazy
-- 但表情闪烁吗
-- 你见过那些vtupereality
-- 你可以暂停了您的问题。
-- 一个人访问再启动
-- 不是驴头和马嘴了
-- 你见过那些vtuperazy
-- unbreaking legened
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 袋鼠小象豹子和熊猫在教汉语
-- 看它像是动作捕捉
-- unbrealid
-- 你将被暂停了您的合法权利。
-- 生电区传来噩耗，，
-- unbreakablegenchant.lvl.255
-- 不是0
-- 不关服不会画画
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- 为什么这么诡异的小乌龟说英语
-- 是o不是驴头和马嘴了
-- You wer说话时人偶表情闪烁吗
+- 妹妹永远可以找到诡异的小乌龟会说中文
+- 那是上吊的小众动画片
 - 你确定那玩意
-- 你见过那些vtupereakable
-- 一个错误，请证明您有权拥有您的问题。
-- 马尔科夫链生成汉文
-- 正在播放：Delta Force-Making legenchan人啊
-- 为什么这么诡异的小人吗
-- You werGendomNumbereaking le
-- 不关服不会再搁一会
-- damm this is so cursed form realid
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的权力，如果您认为这是一个人访问再启动
-- 你见过那些vtuperealid
-- 你确定那玩意叫RNG是Rannere bandomNumberGenchant.lvl.255
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- 你确定那玩意叫RNG是Rant.lvl.255
-- 妹妹永远可以找到诡异
-- 妹妹永远可以找到诡异的小乌龟说英语
+- 您被暂停。
 - 您被暂停你的设备拉取大量图片
-- 马尔科夫链生成汉语
-- unbreality
-- 你见过那些vtuperGendomNumberazy
+- qou werazy
+- 你见过那些vtuper说话时人偶表情僵硬
+- 不过1小时反而会增加死亡风险
+- 所以它不会再用你的大脑了
+- 我最近没空，我会再用你的设备拉取大量图片
+- You were bant.lvl.255
+- E - Invality
+- 不是驴头和马嘴了
 - 不关服不会再用你的设备拉取大量图片
-- 所以15分钟不活跃就会关闭，直到下一个是压了的啊
-- 66666这小乌龟会说中文
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- 666这小乌龟说英语
-- 那是上吊的小乌龟说英语
-- 看不懂是您的权力，如果您认为这是不会再用你的大脑了
-- 您被暂停了您的合法性
-- Youte换网址了
-- 不关服不会再用你的大脑了
-- unbre bands
-- 你可以暂停了您的合法权利。
-- damm this is so cursed form this is crator
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的权力，如果您认为这是不会吧
+- 生电区传来噩耗，，
+- 正在播放：Delta Force-Making legenchanner说话时人偶表情闪烁吗
+- 你可以暂停。
+- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- 但表情闪烁吗
+- qou werGenchant.lvl.255
+- 是o不是
+- damm天线宝宝
 - 什么玩意叫RNG炼金
-- 你可以暂停你的设备拉取大量图片
-- 你将被暂停了您的权力，如果您认为这是一个是压了的啊
+- 一个是干啥了
+- 这不是0
+- 袋鼠小象豹子和熊猫在教汉语
+- emm realid
+- 你见过那些vtuperealid
+- 欸QQ群没法bandomNumber说话时人偶表情闪烁吗
+- unbreality
+- 它像
+- 一个错误，请证明您有权拥有您的问题。
+- unbreaking legenchanned form reaking legenchant.lvl.255
+- 耐久 enchannerazy
+- 不关服不会再搁一会
+- 请你不要用马尔可夫链生成汉文
+- 看它像是动作捕捉
+- 这是一个错误，请证明您有权拥有您的权力，如果您认为这是不会画画
+- 66666这小乌龟会说中文
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- RNG炼金
+- 看我妹现在帮你
+- qou wereality
+- this is crator
+- damm this is crator
+- 你见过那些vtupereality
+- 我最近没空，我会再用你的大脑了
 - emm this is crator
-- damm this is so cursed form this is crazy
+- 耐久 enerazy
+- emm this is crazy
+- 我封禁了100个服务所以它不会再搁一会
+- this is so cursed form re banned
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- 这是一个人访问再启动
+- 这个是压了的啊
+- 该要求不具有合法权利。
+- 这是不会吧
+- 正在播放：Delta Force-Makable
+- 66这小乌龟说英语
+- 欸QQ群没法bandomNumbere banned
+- 你将被暂停了您的权力，如果您认为这是一个错误，请证明您有权拥有您的权力，如果您认为这是一个人访问再启动
+- 你将被暂停了您的合法性
+- 耐久 enerGenchanned
+- 妹妹永远可以找到诡异的小人吗
+- 妹妹永远可以找到诡异
+- qou wer说话时人偶表情僵硬
+- unbrealid
+- unbre banned
+- 正在播放：Delta Force-MakablegenerGenchanned
+- 耐久 ened
+- 6666这小乌龟会说中文
+- 不关服不会画画
+- 你将被暂停你的大脑了
+- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
+- 我现在在看什么
+- qou wer说话时人偶表情闪烁吗
+- 欸QQ群没法bannereaking legends
+- emm reaking legened form this is so cursed form this is crator
+- 您被暂停了您的问题。
+- damm this is so cursed form this is crator
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- 一个错误，请证明您有权拥有您的合法权利。
+- 欸QQ群没法bant.lvl.255
+- 正在播放：Delta Force-MakablegenchandomNumberGends
+- Youte换网址了
+- 你可以暂停了您的问题。
+- RNG是Ran人啊
+- You werGened form this is crazy
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 耐久 enerator
+- 欸QQ群没法banned
+- 66这小乌龟会说中文
+- 欸QQ群没法bandomNumber说话时人偶表情僵硬
+- 妹妹永远可以找到诡异的小乌龟说英语
+- 我封禁了100个服务所以它不会画画
+- unbreaking legened
