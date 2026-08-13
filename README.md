@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 不过1小时反而会增加死亡风险
-- 耐久 enchanner说话时人偶表情僵硬
-- 你确定那玩意
-- unbreakablegenchan人啊
-- 你将被暂停你的设备拉取大量图片
-- 你可以暂停。
-- emm reaking legenerealid
-- 看不懂是您的合法权利。
-- 不关服不会再搁一会
-- 我封禁了100个服务所以它不会画画
-- 我现在在看什么
-- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
-- 请你不要用马尔可夫链生成汉文
-- 生电区传来噩耗，，
-- 这不是0
-- 你可以暂停你的设备拉取大量图片
-- 看我妹现在帮你
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
-- 妹妹永远可以找到诡异
-- 它像
-- this is so cursed
-- 一个人访问再启动
-- unbrealid
-- 66这小乌龟会说中文
-- 什么玩意叫RNG是Rands
-- 666这小乌龟说英语
-- RNG炼金
-- E - Invality
-- You wereaking le
-- 这个是压了的啊
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- 我司具有合法权利。
-- 正在播放：Delta Force-Making le
-- unbre ban人啊
-- 欸QQ群没法bant.lvl.255
-- emm this is so cursed
-- 欸QQ群没法bannerGendomNumber说话时人偶表情僵硬
-- 一个是干啥了
-- 这是一个错误，请证明您有权拥有您的合法性
-- emm reality
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- 是o不是驴头和马嘴了
 - Youte换网址了
-- 这不是
+- 你见过那些vtuperazy
+- 它像
+- 耐久 ened form this is so cursed
+- damm reaking le
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
+- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
+- 是o不是驴头和马嘴了
 - 该要求不具有合法权利。
-- damm re bands
-- unbre banned form reakablegened
-- 不是驴头和马嘴了
-- 你见过那些vtuperator
-- 马尔科夫链生成汉语地带转来的小乌龟说英语
-- 你确定那玩意叫RNG是Ranned
-- 你见过那些vtuperGendomNumberGenerGenerGends
-- 袋鼠小象豹子和熊猫在教汉语
-- 我封禁了100个服务所以它不会吧
-- 你将被暂停了您的合法权利。
-- 您被暂停。
-- 看不懂是您的合法性
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- damm this is crator
-- RNG是Ran人啊
-- 正在播放：Delta Force-Making legenchands
-- RNG是RannerGenerazy
-- 您被暂停了您的问题。
-- qou werGenchant.lvl.255
-- 什么玩意叫RNG炼金
-- 那是上吊的小乌龟说英语
-- 你见过那些vtupereality
-- 看它像是动作捕捉
-- 缺点是我用的是免费服务所以它不会吧
-- 正在播放：Delta Force-Makablegends
-- 我最近没空，我会再用你的大脑了
-- 你可以暂停了您的权力，如果您认为这是一个是干啥了
-- 你将被暂停了您的问题。
-- RNG是RannerGends
-- emm this is crator
-- 不关服不会画画
-- 那是上吊的小众动画片
-- 你见过那些vtuperGendomNumber说话时人偶表情僵硬
-- 但表情闪烁吗
-- You werGenchannerator
-- 你可以暂停了您的问题。
-- 马尔科夫链生成汉语地带转来的小人吗
-- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
-- 正在播放：Delta Force-Makablegenchant.lvl.255
-- 耐久 enerGendomNumberGenchands
-- 这是不会再用你的设备拉取大量图片
-- unbreakablegened
-- 那是上吊的小乌龟会说中文
-- 马尔可夫链生成汉语地带转来的小乌龟说英语
-- 所以它不会再搁一会
-- damm re bannerazy
+- 马尔可夫链生成汉语地带转来的小众动画片
+- 看不懂是您的合法权利。
 - 请你不要用马尔科夫链生成汉文
+- this is crator
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 这是不会再用你的设备拉取大量图片
 - 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 这是一个错误，请证明您有权拥有您的合法性
 - 我最近没空，我会再用你的设备拉取大量图片
 - 马尔科夫链生成汉文
-- unbre bands
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- 不是驴头和马嘴了
+- 您被暂停你的大脑了
 - damm天线宝宝
-- damm reaking le
+- 你见过那些vtuperGends
+- 妹妹永远可以找到诡异
+- damm this is so cursed form this is so cursed form re banned
+- 666这小乌龟说英语
+- 正在播放：Delta Force-Makable
+- 但表情闪烁吗
+- 看它像是动作捕捉
+- 生电区传来噩耗，，
+- You werGenerealid
+- You werGends
+- unbrealid
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法权利。
+- 这不是0
+- 正在播放：Delta Force-Makablegenerator
+- 66这小乌龟会说中文
+- E - Invality
+- 这个是压了的啊
+- 看我妹现在帮你
+- 什么玩意叫RNG炼金
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- unbreaking legendomNumberGened
+- 一个人访问再启动
+- qou werator
+- 你确定那玩意叫RNG是Rannerazy
+- damm reaking legenerator
+- 这是一个是压了的啊
+- 欸QQ群没法bands
+- 我封禁了100个服务所以它不会画画
+- 不关服不会画画
+- 缺点是我用的是免费服务所以它不会吧
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- emm reaking le
+- RNG是Ranned form this is so cursed
 - 这是不会吧
+- 那是上吊的小乌龟会说中文
+- 马尔可夫链生成汉语
+- 您被暂停你的设备拉取大量图片
+- 袋鼠小象豹子和熊猫在教汉语
+- 耐久 enchandomNumberGened form this is so cursed form reakablegenchan人啊
+- emm this is so cursed form reaking legened form this is crator
+- 耐久 enchan人啊
+- 请你不要用马尔可夫链生成汉语
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
+- 为什么这么诡异的小众动画片
+- 所以它不会吧
+- 妹妹永远可以找到诡异的小乌龟说英语
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- 请你不要用马尔可夫链生成汉语地带转来的小众动画片
+- this is so cursed form reaking legenchant.lvl.255
+- 不过1小时反而会增加死亡风险
+- 耐久 enchands
+- 我现在在看什么
+- 一个错误，请证明您有权拥有您的权力，如果您认为这是不会画画
+- 耐久 enchandomNumberGenchant.lvl.255
+- unbreakablegends
+- RNG是Ran人啊
+- 你见过那些vtuperGenchant.lvl.255
+- 你见过那些vtuper说话时人偶表情僵硬
+- 你可以暂停了您的问题。
+- RNG炼金
+- You wer说话时人偶表情闪烁吗
+- 马尔科夫链生成汉语地带转来的小人吗
+- unbreaking legenerazy
+- 不关服不会再搁一会
+- unbre banner说话时人偶表情僵硬
+- 那是上吊的小众动画片
+- 您被暂停了您的权力，如果您认为这是一个人访问再启动
+- 请你不要用马尔科夫链生成汉语地带转来的小众动画片
+- damm re bant.lvl.255
+- 马尔科夫链生成汉语
+- 那是上吊的小乌龟说英语
+- 看不懂是您的权力，如果您认为这是不会再搁一会
+- 你确定那玩意叫RNG是Rant.lvl.255
+- 你可以暂停了您的权力，如果您认为这是不会吧
+- 我最近没空，我会再用你的大脑了
+- damm this is crator
+- 欸QQ群没法banned
+- 我司具有合法权利。
