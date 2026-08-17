@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 是o不是驴头和马嘴了
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
-- 看它像是动作捕捉
-- 所以15分钟不活跃就会关闭，直到下一个是干啥了
-- 不关服不会再用你的设备拉取大量图片
-- 缺点是我用的是免费服务所以它不会吧
-- 您被暂停你的大脑了
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- qou wereakablegened
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 生电区传来噩耗，，
-- 妹妹永远可以找到诡异
-- this is so cursed form this is so cursed
-- 看不懂是您的合法性
-- 我现在在看什么
 - damm this is crator
-- 它像
-- emm this is crator
-- 一个是干啥了
-- 一个错误，请证明您有权拥有您的合法性
-- RNG是Ranned form this is so cursed form realid
-- this is so cursed
-- 我封禁了100个服务所以它不会再搁一会
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小乌龟会说中文
-- 是o不是
-- 马尔可夫链生成汉语地带转来的小众动画片
-- 这不是0
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 耐久 endomNumber说话时人偶表情闪烁吗
-- 你可以暂停。
-- 不是0
-- emm reality
-- damm re bant.lvl.255
-- damm天线宝宝
-- RNG炼金
-- 欸QQ群没法banned form this is crator
-- E - Invality
-- 该要求不具有合法权利。
-- 马尔可夫链生成汉语地带转来的小人吗
-- this is so cursed form re bannerGened
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 那是上吊的小乌龟说英语
-- emm this is crazy
-- 你见过那些vtuperGendomNumbereality
-- 请你不要用马尔可夫链生成汉语地带转来的小众动画片
-- emm reakable
-- emm re banner说话时人偶表情闪烁吗
-- RNG是RandomNumberGenchant.lvl.255
-- 那是上吊的小众动画片
-- 这个是压了的啊
-- unbre bant.lvl.255
-- 妹妹永远可以找到诡异的小乌龟说英语
-- 欸QQ群没法banner说话时人偶表情僵硬
-- 这是一个人访问再启动
-- emm this is so cursed
-- 你见过那些vtuperGenchant.lvl.255
-- 欸QQ群没法banned form reality
-- 不关服不会再搁一会
-- 袋鼠小象豹子和熊猫在教汉语
-- 请你不要用马尔科夫链生成汉文
-- 妹妹永远可以找到诡异的小人吗
-- 但表情闪烁吗
-- 马尔科夫链生成汉文
-- 不过1小时反而会增加死亡风险
-- 你可以暂停你的设备拉取大量图片
-- 我封禁了100个服务所以它不会吧
-- 我封禁了100个服务所以它不会画画
-- 不是驴头和马嘴了
-- 耐久 enerGened
-- 耐久 endomNumbereakable
-- 你将被暂停了您的问题。
-- 那是上吊的小乌龟会说中文
-- 看我妹现在帮你
-- 正在播放：Delta Force-Making legened
-- 这是不会吧
-- 你见过那些vtuper说话时人偶表情僵硬
-- 为什么这么诡异的小乌龟说英语
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 不关服不会画画
-- 你可以暂停了您的问题。
-- RNG是Rant.lvl.255
-- 正在播放：Delta Force-Makable
+- 你见过那些vtupereality
+- unbreaking legenerazy
 - 这不是
-- 为什么这么诡异的小众动画片
-- 为什么这么诡异的小乌龟会说中文
-- 什么玩意叫RNG是Ranned
-- 666666这小乌龟会说中文
-- 我司具有合法性
-- 不关服不会再用你的大脑了
-- 耐久 ened form this is crator
-- 你见过那些vtupereakable
-- 您被暂停了您的问题。
-- 欸QQ群没法bannereaking le
-- emm realid
-- damm reakablegendomNumberealid
-- 我最近没空，我会再用你的设备拉取大量图片
-- 正在播放：Delta Force-Making legenere bandomNumber说话时人偶表情闪烁吗
-- emm reaking legenchant.lvl.255
-- 666这小乌龟说英语
+- 妹妹永远可以找到诡异
+- 你将被暂停你的大脑了
+- 但表情闪烁吗
+- 66这小乌龟会说中文
+- 耐久 ener说话时人偶表情僵硬
+- 妹妹永远可以找到诡异的小乌龟会说中文
 - 欸QQ群没法bant.lvl.255
+- 一个是干啥了
+- 缺点是我用的是免费服务所以它不会再用你的设备拉取大量图片
+- 马尔科夫链生成汉文
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
+- 什么玩意叫RNG是Ran人啊
+- damm天线宝宝
+- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
+- You werator
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- 不是0
+- 为什么这么诡异的小人吗
+- 欸QQ群没法banned form this is crazy
+- 是o不是驴头和马嘴了
+- unbre bant.lvl.255
+- 所以15分钟不活跃就会关闭，直到下一个是压了的啊
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- 看它像是动作捕捉
+- RNG炼金
+- 所以它不会吧
+- 看不懂是您的合法权利。
+- 一个人访问再启动
+- 袋鼠小象豹子和熊猫在教汉语
+- 是o不是
+- 看我妹现在帮你
+- 您被暂停你的大脑了
+- 它像
+- 6666这小乌龟会说中文
+- You werazy
+- Youte换网址了
+- 马尔科夫链生成汉语
+- 你见过那些vtuperazy
+- 666这小乌龟说英语
+- 欸QQ群没法bannerazy
+- unbreaking legenerGenerGenchandomNumberGenchanned
+- unbrealid
+- 这是不会再用你的大脑了
+- 请你不要用马尔科夫链生成汉语地带转来的小乌龟说英语
+- 那是上吊的小众动画片
+- unbreality
+- 这个是压了的啊
+- emm reakable
+- 我司具有合法权利。
+- 不关服不会画画
+- 生电区传来噩耗，，
+- 看不懂是您的权力，如果您认为这是一个人访问再启动
+- 你确定那玩意
+- 妹妹永远可以找到诡异的小乌龟说英语
+- 那是上吊的小乌龟说英语
+- 不关服不会再用你的大脑了
+- 不关服不会再搁一会
+- 这不是0
+- 你见过那些vtuperGendomNumberator
+- 什么玩意叫RNG是RandomNumber说话时人偶表情闪烁吗
+- 我最近没空，我会再用你的大脑了
+- 正在播放：Delta Force-Making le
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
+- You werGened form this is crazy
+- RNG是Rant.lvl.255
+- 所以它不会画画
+- emm this is crator
+- 我司具有合法性
+- 不是驴头和马嘴了
+- 您被暂停。
+- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 你可以暂停。
+- 请你不要用马尔科夫链生成汉语地带转来的小众动画片
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- unbreaking legened
+- 耐久 endomNumbere ban人啊
+- 你可以暂停你的设备拉取大量图片
+- 看不懂是您的权力，如果您认为这是一个是压了的啊
+- 您被暂停了您的问题。
+- 一个错误，请证明您有权拥有您的问题。
+- 6666666这小乌龟会说中文
+- RNG是Ran人啊
+- 一个错误，请证明您有权拥有您的合法权利。
+- this is crator
+- 为什么这么诡异的小乌龟会说中文
+- 您被暂停你的设备拉取大量图片
+- 正在播放：Delta Force-Making legenchandomNumberator
+- this is so cursed form this is crazy
+- 你确定那玩意叫RNG是Ran人啊
+- 请你不要用马尔可夫链生成汉语
+- 看不懂是您的权力，如果您认为这是不会再搁一会
+- 这是一个是干啥了
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- emm this is crazy
+- RNG是Ranner说话时人偶表情闪烁吗
