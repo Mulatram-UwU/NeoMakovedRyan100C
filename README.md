@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 耐久 endomNumberGends
-- 缺点是我用的是免费服务所以它不会吧
-- damm this is crator
-- 耐久 enerator
-- 正在播放：Delta Force-Makablegends
-- RNG是Ran人啊
-- emm this is crazy
-- 妹妹永远可以找到诡异的小乌龟会说中文
-- damm天线宝宝
-- 耐久 ened
-- 所以15分钟不活跃就会关闭，直到下一个是压了的啊
-- 马尔科夫链生成汉文
-- 正在播放：Delta Force-Makablegenchan人啊
-- 生电区传来噩耗，，
-- 看我妹现在帮你
-- this is so cursed form this is crazy
-- 不过1小时反而会增加死亡风险
-- 我现在在看什么
-- 这是一个是压了的啊
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
-- emm this is crator
+- 马尔可夫链生成汉语地带转来的小乌龟会说中文
+- unbre banner说话时人偶表情闪烁吗
 - Youte换网址了
 - 妹妹永远可以找到诡异
-- 你见过那些vtuperGenchands
-- qou werator
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- RNG炼金
-- 看不懂是您的权力，如果您认为这是一个人访问再启动
-- RNG是Rands
-- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 不关服不会画画
-- 所以15分钟不活跃就会关闭，直到下一个是干啥了
-- 马尔科夫链生成汉语
-- 正在播放：Delta Force-Makable
-- unbre bandomNumberGenchanner说话时人偶表情僵硬
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个是压了的啊
-- 这不是0
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 不是0
-- 66这小乌龟会说中文
-- unbre banned form this is crazy
-- 你确定那玩意叫RNG是Ran人啊
-- 您被暂停。
-- 这不是
-- You werGenchanner说话时人偶表情僵硬
-- 该要求不具有合法权利。
-- 耐久 enerazy
-- 看不懂是您的权力，如果您认为这是不会再搁一会
-- 那是上吊的小乌龟说英语
-- RNG是RandomNumberealid
-- unbre bannerazy
-- 那是上吊的小众动画片
-- You wer说话时人偶表情僵硬
-- 看不懂是您的合法性
-- damm reakablegenerGened
-- 什么玩意叫RNG是Rant.lvl.255
-- 什么玩意叫RNG炼金
-- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个是干啥了
-- 你确定那玩意叫RNG是Rannerator
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- 看它像是动作捕捉
-- 正在播放：Delta Force-Making le
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小乌龟会说中文
-- 这是不会再搁一会
-- 欸QQ群没法bannereality
-- 为什么这么诡异的小众动画片
 - 请你不要用马尔可夫链生成汉文
-- 妹妹永远可以找到诡异的小人吗
-- emm re bands
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
-- 请你不要用马尔科夫链生成汉语地带转来的小人吗
-- E - Invality
-- 欸QQ群没法bands
+- 我最近没空，我会再用你的大脑了
+- You werazy
+- 缺点是我用的是免费服务所以它不会再搁一会
+- 但表情闪烁吗
+- 你见过那些vtuperGenchands
+- 正在播放：Delta Force-Making legenere bands
+- damm天线宝宝
+- 你见过那些vtuperator
+- unbrealid
+- unbre bands
+- qou werGenchant.lvl.255
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- this is so cursed
+- 正在播放：Delta Force-Making le
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
 - 你将被暂停你的大脑了
-- 这是一个错误，请证明您有权拥有您的问题。
-- 这个是压了的啊
-- 它像
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
-- this is crator
-- 是o不是
-- 你将被暂停了您的合法权利。
-- qou wereakable
-- 你可以暂停。
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- 你将被暂停了您的问题。
-- 那是上吊的小乌龟会说中文
-- 耐久 ends
-- 请你不要用马尔科夫链生成汉文
-- 请你不要用马尔可夫链生成汉语地带转来的小乌龟会说中文
-- 欸QQ群没法banned form this is so cursed form this is crazy
+- RNG是Ran人啊
+- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
+- 您被暂停了您的问题。
+- 请你不要用马尔科夫链生成汉语地带转来的小众动画片
+- damm reality
+- 正在播放：Delta Force-Making legenchan人啊
+- 我司具有合法性
+- emm this is so cursed form this is crazy
+- unbreaking le
 - 袋鼠小象豹子和熊猫在教汉语
-- 您被暂停你的大脑了
-- 666这小乌龟说英语
-- 这是一个错误，请证明您有权拥有您的权力，如果您认为这是一个错误，请证明您有权拥有您的权力，如果您认为这是一个错误，请证明您有权拥有您的合法权利。
-- 我最近没空，我会再用你的设备拉取大量图片
+- 不过1小时反而会增加死亡风险
+- You wereakable
+- 我现在在看什么
+- 看我妹现在帮你
+- emm reaking legenchant.lvl.255
+- 你可以暂停了您的合法权利。
+- 66这小乌龟会说中文
+- unbreality
+- 看它像是动作捕捉
+- 这不是
+- 欸QQ群没法bands
+- 请你不要用马尔科夫链生成汉文
+- 妹妹永远可以找到诡异的小乌龟说英语
+- 该要求不具有合法权利。
+- RNG炼金
+- 不是0
+- 生电区传来噩耗，，
+- qou werazy
+- 我司具有合法权利。
+- 它像
+- damm realid
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
+- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- 一个是干啥了
+- 66这小乌龟说英语
+- 您被暂停。
+- qou wer说话时人偶表情僵硬
+- 不是驴头和马嘴了
+- 这是一个是压了的啊
+- 这是不会吧
+- 你可以暂停。
+- damm this is crator
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
+- RNG是Rands
+- damm reaking le
+- 这是一个错误，请证明您有权拥有您的权力，如果您认为这是一个是压了的啊
+- You wer说话时人偶表情闪烁吗
+- 这是一个人访问再启动
+- 你见过那些vtuperealid
+- unbreaking legends
 - 你见过那些vtuperGened
-- 您被暂停了您的合法权利。
-- 我封禁了100个服务所以它不会再用你的设备拉取大量图片
+- 不关服不会画画
+- E - Invality
+- 是o不是
+- 一个人访问再启动
+- 是o不是驴头和马嘴了
+- emm this is crazy
+- 一个错误，请证明您有权拥有您的权力，如果您认为这是不会吧
+- 欸QQ群没法bannereaking le
+- 妹妹永远可以找到诡异的小乌龟会说中文
+- 所以15分钟不活跃就会关闭，直到下一个是压了的啊
+- 那是上吊的小众动画片
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法权利。
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的权力，如果您认为这是不会再搁一会
+- 你将被暂停了您的权力，如果您认为这是一个人访问再启动
+- emm this is crator
+- 正在播放：Delta Force-Makable
+- emm this is so cursed form reality
+- 您被暂停你的设备拉取大量图片
+- 你见过那些vtuperazy
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- 你将被暂停你的设备拉取大量图片
+- emm realid
+- 你可以暂停你的设备拉取大量图片
+- 所以它不会再搁一会
+- 耐久 endomNumber说话时人偶表情闪烁吗
+- 正在播放：Delta Force-Makablegened
+- 这不是0
+- 欸QQ群没法banned
