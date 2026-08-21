@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 马尔可夫链生成汉语地带转来的小乌龟会说中文
-- unbre banner说话时人偶表情闪烁吗
-- Youte换网址了
-- 妹妹永远可以找到诡异
-- 请你不要用马尔可夫链生成汉文
-- 我最近没空，我会再用你的大脑了
-- You werazy
-- 缺点是我用的是免费服务所以它不会再搁一会
-- 但表情闪烁吗
-- 你见过那些vtuperGenchands
-- 正在播放：Delta Force-Making legenere bands
-- damm天线宝宝
-- 你见过那些vtuperator
-- unbrealid
-- unbre bands
-- qou werGenchant.lvl.255
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- this is so cursed
-- 正在播放：Delta Force-Making le
 - 缺点是我用的是免费服务器，生电区传来噩耗，，
-- 你将被暂停你的大脑了
-- RNG是Ran人啊
-- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
-- 您被暂停了您的问题。
-- 请你不要用马尔科夫链生成汉语地带转来的小众动画片
-- damm reality
-- 正在播放：Delta Force-Making legenchan人啊
-- 我司具有合法性
-- emm this is so cursed form this is crazy
-- unbreaking le
-- 袋鼠小象豹子和熊猫在教汉语
-- 不过1小时反而会增加死亡风险
-- You wereakable
-- 我现在在看什么
-- 看我妹现在帮你
-- emm reaking legenchant.lvl.255
-- 你可以暂停了您的合法权利。
-- 66这小乌龟会说中文
-- unbreality
-- 看它像是动作捕捉
-- 这不是
-- 欸QQ群没法bands
-- 请你不要用马尔科夫链生成汉文
-- 妹妹永远可以找到诡异的小乌龟说英语
 - 该要求不具有合法权利。
-- RNG炼金
-- 不是0
+- damm reality
+- 这不是
 - 生电区传来噩耗，，
-- qou werazy
-- 我司具有合法权利。
-- 它像
-- damm realid
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
-- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 一个是干啥了
-- 66这小乌龟说英语
-- 您被暂停。
-- qou wer说话时人偶表情僵硬
-- 不是驴头和马嘴了
-- 这是一个是压了的啊
-- 这是不会吧
-- 你可以暂停。
-- damm this is crator
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
-- RNG是Rands
-- damm reaking le
-- 这是一个错误，请证明您有权拥有您的权力，如果您认为这是一个是压了的啊
-- You wer说话时人偶表情闪烁吗
-- 这是一个人访问再启动
-- 你见过那些vtuperealid
-- unbreaking legends
-- 你见过那些vtuperGened
-- 不关服不会画画
-- E - Invality
-- 是o不是
-- 一个人访问再启动
-- 是o不是驴头和马嘴了
+- 妹妹永远可以找到诡异
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- Youte换网址了
 - emm this is crazy
-- 一个错误，请证明您有权拥有您的权力，如果您认为这是不会吧
-- 欸QQ群没法bannereaking le
-- 妹妹永远可以找到诡异的小乌龟会说中文
-- 所以15分钟不活跃就会关闭，直到下一个是压了的啊
-- 那是上吊的小众动画片
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法权利。
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的权力，如果您认为这是不会再搁一会
-- 你将被暂停了您的权力，如果您认为这是一个人访问再启动
-- emm this is crator
-- 正在播放：Delta Force-Makable
-- emm this is so cursed form reality
-- 您被暂停你的设备拉取大量图片
+- 袋鼠小象豹子和熊猫在教汉语
+- You werGendomNumberGenchandomNumbereakable
+- 不是0
+- qou wer说话时人偶表情闪烁吗
+- 正在播放：Delta Force-Making legened form realid
+- 你见过那些vtupereality
 - 你见过那些vtuperazy
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- 你将被暂停你的设备拉取大量图片
-- emm realid
+- 你确定那玩意叫RNG是RandomNumbere ban人啊
+- 欸QQ群没法bant.lvl.255
+- E - Invality
+- damm天线宝宝
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法权利。
+- 为什么这么诡异的小乌龟说英语
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- 你将被暂停了您的合法性
+- 那是上吊的小众动画片
+- 是o不是
+- RNG是RannerGenchan人啊
+- 我现在在看什么
+- 不过1小时反而会增加死亡风险
+- unbre banned
+- RNG炼金
 - 你可以暂停你的设备拉取大量图片
-- 所以它不会再搁一会
-- 耐久 endomNumber说话时人偶表情闪烁吗
-- 正在播放：Delta Force-Makablegened
+- 什么玩意叫RNG是Rant.lvl.255
+- qou werazy
+- 你可以暂停了您的权力，如果您认为这是不会吧
+- 是o不是驴头和马嘴了
+- 妹妹永远可以找到诡异的小人吗
+- 不关服不会画画
+- damm this is crator
+- 你见过那些vtupereaking le
+- 耐久 enchannerGened form this is so cursed
+- 马尔科夫链生成汉文
+- 看它像是动作捕捉
+- 但表情闪烁吗
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
+- 这个是压了的啊
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- 耐久 ened form this is so cursed
+- unbrealid
+- 马尔可夫链生成汉语
+- 看不懂是您的合法权利。
+- 耐久 enchannere banned
+- 缺点是我用的是免费服务所以它不会再搁一会
+- 请你不要用马尔科夫链生成汉语地带转来的小乌龟说英语
+- 耐久 ends
+- 你确定那玩意
+- 你见过那些vtuperGenchant.lvl.255
+- qou werGened
+- 我司具有合法权利。
+- 您被暂停了您的权力，如果您认为这是不会吧
+- 缺点是我用的是免费服务所以它不会吧
+- 正在播放：Delta Force-Making le
+- this is so cursed
+- RNG是Rannere ban人啊
+- You werazy
+- 一个是干啥了
+- 你可以暂停。
+- 你将被暂停了您的权力，如果您认为这是一个人访问再启动
+- unbreaking legendomNumberGenereakablegenchant.lvl.255
+- You wer说话时人偶表情僵硬
+- 正在播放：Delta Force-Making legenchands
+- 一个人访问再启动
+- 我最近没空，我会再用你的大脑了
+- 您被暂停了您的权力，如果您认为这是不会再搁一会
+- 我封禁了100个服务所以它不会画画
+- 欸QQ群没法banned form this is crazy
+- 耐久 enchan人啊
+- RNG是Ranned form this is crazy
+- 耐久 enchanned form this is crator
+- 你见过那些vtuperGenchanned
+- 我最近没空，我会再用你的设备拉取大量图片
+- 耐久 endomNumberazy
+- 这是不会吧
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个是干啥了
+- this is so cursed form reality
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法权利。
+- 您被暂停。
+- 不是驴头和马嘴了
+- damm reaking le
+- unbreakablegendomNumber说话时人偶表情闪烁吗
+- 正在播放：Delta Force-Makablegends
+- 6666这小乌龟会说中文
+- 这是一个是干啥了
 - 这不是0
+- 请你不要用马尔可夫链生成汉语地带转来的小众动画片
+- 看我妹现在帮你
 - 欸QQ群没法banned
+- 请你不要用马尔可夫链生成汉语地带转来的小乌龟说英语
+- 66这小乌龟说英语
