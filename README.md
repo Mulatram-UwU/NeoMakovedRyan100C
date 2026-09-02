@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- this is crator
-- 正在播放：Delta Force-Making le
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- 正在播放：Delta Force-Makablegenchan人啊
-- 你确定那玩意
-- 这个是压了的啊
-- 这不是
-- 所以它不会吧
-- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 那是上吊的小众动画片
-- 一个是干啥了
-- emm this is crator
-- emm this is crazy
-- 我最近没空，我会再用你的大脑了
-- damm天线宝宝
-- 该要求不具有合法权利。
-- RNG是Rands
-- 那是上吊的小乌龟说英语
-- RNG炼金
-- 这是一个错误，请证明您有权拥有您的权力，如果您认为这是不会画画
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
-- qou were bannere bandomNumbere bannerGenchan人啊
-- 所以它不会再搁一会
-- 看我妹现在帮你
-- 耐久 endomNumber说话时人偶表情闪烁吗
-- Youte换网址了
-- unbreaking le
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- 一个人访问再启动
-- unbre ban人啊
-- 是o不是
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 妹妹永远可以找到诡异
-- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个是压了的啊
-- 耐久 endomNumbereality
-- 您被暂停了您的合法性
-- 所以它不会画画
-- 你将被暂停你的设备拉取大量图片
-- 我司具有合法权利。
-- unbrealid
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- 你确定那玩意叫RNG是Ranned
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
-- 生电区传来噩耗，，
-- 袋鼠小象豹子和熊猫在教汉语
-- 马尔科夫链生成汉语
-- E - Invality
-- this is so cursed form this is crazy
-- 什么玩意叫RNG炼金
-- damm this is crator
-- 耐久 ened form this is so cursed form reaking legenchant.lvl.255
-- 不关服不会再用你的设备拉取大量图片
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的权力，如果您认为这是一个是干啥了
-- 你可以暂停了您的问题。
-- 正在播放：Delta Force-MakablegendomNumberGends
-- 您被暂停了您的权力，如果您认为这是不会再搁一会
-- 请你不要用马尔科夫链生成汉语地带转来的小乌龟会说中文
-- RNG是Ranned form re bant.lvl.255
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
-- 66这小乌龟会说中文
-- RNG是RannerGener说话时人偶表情僵硬
-- 66这小乌龟说英语
-- 你见过那些vtuperator
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
-- 我最近没空，我会再用你的设备拉取大量图片
-- 666这小乌龟说英语
-- 看不懂是您的权力，如果您认为这是一个错误，请证明您有权拥有您的权力，如果您认为这是不会吧
-- 正在播放：Delta Force-Makable
-- 欸QQ群没法bannereakable
-- 看它像是动作捕捉
-- 耐久 endomNumber说话时人偶表情僵硬
-- unbre bant.lvl.255
-- 一个错误，请证明您有权拥有您的权力，如果您认为这是一个错误，请证明您有权拥有您的合法权利。
-- 正在播放：Delta Force-Makablegenchant.lvl.255
-- 不关服不会画画
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 你将被暂停了您的问题。
-- 不是0
-- unbre bandomNumberazy
-- 6666这小乌龟说英语
-- 你见过那些vtuper说话时人偶表情僵硬
 - 什么玩意叫RNG是Rannerazy
-- 你可以暂停。
-- unbreakablegends
-- 耐久 enchandomNumber说话时人偶表情闪烁吗
-- 这不是0
-- RNG是Rant.lvl.255
-- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
-- 这是不会再搁一会
-- 耐久 ends
 - 不是驴头和马嘴了
-- 耐久 enchan人啊
-- 看不懂是您的合法权利。
-- 一个错误，请证明您有权拥有您的权力，如果您认为这是不会画画
-- 妹妹永远可以找到诡异的小乌龟说英语
-- 请你不要用马尔科夫链生成汉语地带转来的小众动画片
-- 您被暂停你的设备拉取大量图片
+- damm this is so cursed form this is crazy
+- 你确定那玩意
+- 所以它不会再搁一会
+- 你将被暂停你的大脑了
+- 您被暂停。
+- damm天线宝宝
+- 你见过那些vtuperGened form this is crazy
+- 所以它不会画画
+- 耐久 ened
+- 你可以暂停。
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
+- 这是一个错误，请证明您有权拥有您的合法权利。
+- 我最近没空，我会再用你的设备拉取大量图片
+- RNG是Rant.lvl.255
+- 马尔科夫链生成汉文
+- 你将被暂停了您的合法权利。
+- You werazy
+- emm this is crazy
+- Youte换网址了
+- 66这小乌龟说英语
+- this is so cursed form this is crazy
+- 为什么这么诡异的小众动画片
+- E - Invality
+- 妹妹永远可以找到诡异的小人吗
+- 这不是
+- 一个错误，请证明您有权拥有您的权力，如果您认为这是不会吧
+- 66666666这小乌龟说英语
+- 666这小乌龟说英语
+- qou werGendomNumber说话时人偶表情僵硬
+- 但表情闪烁吗
+- damm this is crator
+- 看不懂是您的合法性
+- 这是一个错误，请证明您有权拥有您的问题。
+- 这是不会吧
+- 那是上吊的小众动画片
+- 马尔科夫链生成汉语地带转来的小乌龟说英语
+- 正在播放：Delta Force-Making legendomNumberazy
+- 看不懂是您的权力，如果您认为这是一个人访问再启动
+- 缺点是我用的是免费服务所以它不会再用你的大脑了
+- 你见过那些vtuperazy
+- 你见过那些vtupereality
+- 请你不要用马尔可夫链生成汉文
+- 这不是0
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 我现在在看什么
+- 你可以暂停了您的权力，如果您认为这是不会再用你的设备拉取大量图片
+- 这是一个是压了的啊
+- 你见过那些vtuperGendomNumbereality
+- this is crator
+- unbre banner说话时人偶表情闪烁吗
+- 袋鼠小象豹子和熊猫在教汉语
+- 正在播放：Delta Force-Makable
+- 该要求不具有合法权利。
+- 你可以暂停你的设备拉取大量图片
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- unbreakablegenchanned form re ban人啊
+- 您被暂停你的大脑了
+- 正在播放：Delta Force-MakablegendomNumbere banner说话时人偶表情僵硬
+- 你见过那些vtupere bant.lvl.255
+- 为什么这么诡异的小乌龟说英语
+- 不关服不会画画
+- 耐久 enchanned form realid
+- 66这小乌龟会说中文
+- 生电区传来噩耗，，
+- 马尔科夫链生成汉语地带转来的小人吗
+- 这是一个人访问再启动
+- damm reaking le
+- 什么玩意叫RNG炼金
+- 正在播放：Delta Force-Makablegened
+- RNG炼金
+- 我司具有合法权利。
+- 看我妹现在帮你
+- 不关服不会再搁一会
+- 妹妹永远可以找到诡异
+- 什么玩意叫RNG是Ran人啊
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
 - 不过1小时反而会增加死亡风险
-- 正在播放：Delta Force-Making legenchandomNumbereaking le
+- 我司具有合法性
+- 请你不要用马尔科夫链生成汉文
+- emm realid
+- 我最近没空，我会再用你的大脑了
+- 看不懂是您的权力，如果您认为这是不会再用你的大脑了
+- 一个错误，请证明您有权拥有您的合法性
+- emm this is so cursed
+- 这个是压了的啊
+- 我封禁了100个服务所以它不会再搁一会
+- 马尔可夫链生成汉语
+- 看它像是动作捕捉
+- 你将被暂停了您的合法性
+- damm reakable
+- 什么玩意叫RNG是Ranned form this is crazy
+- 看不懂是您的合法权利。
+- 看不懂是您的权力，如果您认为这是不会吧
+- 妹妹永远可以找到诡异的小乌龟会说中文
+- 正在播放：Delta Force-MakablegenerGenchan人啊
+- 它像
+- this is so cursed form this is so cursed
+- 不是0
