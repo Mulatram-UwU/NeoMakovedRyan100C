@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
-- 请你不要用马尔可夫链生成汉文
-- this is crator
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
-- 你将被暂停了您的权力，如果您认为这是不会吧
-- 看不懂是您的权力，如果您认为这是一个错误，请证明您有权拥有您的合法权利。
-- 生电区传来噩耗，，
-- 袋鼠小象豹子和熊猫在教汉语
-- emm this is crazy
-- RNG炼金
-- 耐久 enchannere banned
-- 请你不要用马尔科夫链生成汉文
-- 这不是
-- 什么玩意叫RNG炼金
-- 它像
-- 666这小乌龟说英语
-- 这是一个是压了的啊
-- 为什么这么诡异的小众动画片
-- 什么玩意叫RNG是Ran人啊
-- unbrealid
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 我最近没空，我会再用你的大脑了
-- 你确定那玩意叫RNG是Ran人啊
-- 不是驴头和马嘴了
-- this is so cursed form this is so cursed form reakable
-- 欸QQ群没法bands
-- You werazy
-- 一个错误，请证明您有权拥有您的权力，如果您认为这是一个是压了的啊
-- 正在播放：Delta Force-Makable
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- 6666666这小乌龟说英语
 - 但表情闪烁吗
-- 我最近没空，我会再用你的设备拉取大量图片
-- 那是上吊的小乌龟会说中文
-- 缺点是我用的是免费服务所以它不会吧
-- emm reakablegened form reakablegendomNumberator
-- 看我妹现在帮你
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 妹妹永远可以找到诡异的小乌龟说英语
-- 耐久 ends
-- 妹妹永远可以找到诡异
-- E - Invality
-- 这不是0
-- 一个人访问再启动
-- 请你不要用马尔科夫链生成汉语地带转来的小众动画片
-- 您被暂停了您的问题。
-- 看它像是动作捕捉
-- 你确定那玩意叫RNG是Rant.lvl.255
-- 欸QQ群没法bant.lvl.255
-- 那是上吊的小众动画片
-- 我司具有合法性
-- 你将被暂停你的大脑了
-- Youte换网址了
-- 你将被暂停了您的权力，如果您认为这是一个人访问再启动
-- You were ban人啊
-- 这是不会再用你的设备拉取大量图片
-- 您被暂停了您的合法性
-- 看不懂是您的合法性
-- 你见过那些vtupere banned
-- 你可以暂停了您的权力，如果您认为这是不会吧
-- 你见过那些vtupere ban人啊
-- 为什么这么诡异的小乌龟说英语
 - 该要求不具有正常对话能力并有医院进行病人的救治。
-- 妹妹永远可以找到诡异的小人吗
-- 不关服不会画画
-- 您被暂停。
-- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
-- unbreakablegendomNumberGendomNumbereaking legenchant.lvl.255
-- 你可以暂停。
-- damm this is crator
-- 我司具有合法权利。
-- RNG是Rant.lvl.255
-- 这是不会吧
-- 不是0
-- 你将被暂停你的设备拉取大量图片
-- 正在播放：Delta Force-Makablegenerator
-- 这是一个人访问再启动
-- damm天线宝宝
-- RNG是Ran人啊
-- 不关服不会再用你的设备拉取大量图片
-- damm this is so cursed form this is so cursed form this is so cursed
+- 这不是
+- 你见过那些vtuperGenerGends
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- 那是上吊的小乌龟会说中文
+- 妹妹永远可以找到诡异
+- 您被暂停了您的权力，如果您认为这是不会再搁一会
+- 袋鼠小象豹子和熊猫在教汉语
 - 不过1小时反而会增加死亡风险
-- 看不懂是您的权力，如果您认为这是不会吧
-- 马尔科夫链生成汉语
-- 你确定那玩意
-- 不关服不会再用你的大脑了
-- 是o不是
-- 这个是压了的啊
-- 那是上吊的小乌龟说英语
-- 该要求不具有合法权利。
-- 正在播放：Delta Force-Makablegends
+- 你可以暂停了您的合法权利。
+- 不是驴头和马嘴了
+- 是o不是驴头和马嘴了
+- 我最近没空，我会再用你的设备拉取大量图片
+- unbre bannerGendomNumberGenchannere bandomNumbere banned form reaking legenchant.lvl.255
+- this is so cursed
+- 这是一个是干啥了
+- 一个是干啥了
+- 欸QQ群没法bands
+- You wereality
+- emm reality
 - 我现在在看什么
-- emm reakable
-- RNG是Rands
-- 什么玩意叫RNG是RandomNumbere ban人啊
-- 我封禁了100个服务所以它不会再用你的设备拉取大量图片
-- 6666这小乌龟说英语
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- damm realid
+- 我司具有合法性
+- 看它像是动作捕捉
+- 是o不是
+- 该要求不具有合法权利。
+- 马尔可夫链生成汉语
+- 你确定那玩意
+- 请你不要用马尔科夫链生成汉语地带转来的小众动画片
+- 66这小乌龟说英语
+- damm天线宝宝
+- 那是上吊的小乌龟说英语
+- RNG是Ran人啊
+- unbre bant.lvl.255
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- 什么玩意叫RNG炼金
+- qou wer说话时人偶表情僵硬
+- RNG是Rant.lvl.255
+- 我司具有合法权利。
+- 您被暂停了您的问题。
+- 生电区传来噩耗，，
+- this is so cursed form this is crator
+- 正在播放：Delta Force-Makable
+- unbreaking legendomNumberGened
+- 你可以暂停你的设备拉取大量图片
+- 你见过那些vtuperazy
+- qou werazy
+- emm re bands
+- unbre banned
+- 为什么这么诡异的小众动画片
+- RNG炼金
+- 一个错误，请证明您有权拥有您的问题。
+- 这是一个人访问再启动
+- 这个是压了的啊
+- 你可以暂停了您的权力，如果您认为这是不会再用你的设备拉取大量图片
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
 - 请你不要用马尔可夫链生成汉语
-- 你见过那些vtupereakablegenchannere bant.lvl.255
+- 您被暂停你的设备拉取大量图片
+- 正在播放：Delta Force-Making legenchanned
+- emm this is crazy
+- 你将被暂停了您的问题。
+- 这是一个错误，请证明您有权拥有您的权力，如果您认为这是一个人访问再启动
+- 马尔科夫链生成汉文
+- 6666这小乌龟会说中文
+- 正在播放：Delta Force-Making legenere banned
+- 欸QQ群没法banner说话时人偶表情闪烁吗
+- 你可以暂停。
+- 它像
+- 您被暂停了您的权力，如果您认为这是一个是压了的啊
+- 正在播放：Delta Force-MakablegenchandomNumberGendomNumber说话时人偶表情僵硬
+- 您被暂停你的大脑了
+- 一个人访问再启动
+- 这不是0
+- 一个错误，请证明您有权拥有您的合法性
+- Youte换网址了
+- 耐久 ened
+- 您被暂停了您的权力，如果您认为这是一个人访问再启动
+- 不关服不会画画
+- damm reality
+- 您被暂停。
+- this is so cursed form realid
+- 请你不要用马尔科夫链生成汉文
+- 欸QQ群没法bant.lvl.255
+- 这是不会吧
+- E - Invality
+- 妹妹永远可以找到诡异的小人吗
+- 看不懂是您的权力，如果您认为这是不会再搁一会
+- 正在播放：Delta Force-Making legened
+- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- 为什么这么诡异的小人吗
+- 那是上吊的小众动画片
+- 我封禁了100个服务所以它不会再搁一会
+- emm reakablegenchands
+- 你见过那些vtuperGenchan人啊
+- unbre ban人啊
+- 不关服不会再搁一会
+- 所以15分钟不活跃就会关闭，直到下一个是干啥了
+- 正在播放：Delta Force-MakablegendomNumberGenchandomNumbereaking le
