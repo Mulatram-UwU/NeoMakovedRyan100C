@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 但表情闪烁吗
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 这不是
-- 你见过那些vtuperGenerGends
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 那是上吊的小乌龟会说中文
-- 妹妹永远可以找到诡异
-- 您被暂停了您的权力，如果您认为这是不会再搁一会
-- 袋鼠小象豹子和熊猫在教汉语
-- 不过1小时反而会增加死亡风险
-- 你可以暂停了您的合法权利。
-- 不是驴头和马嘴了
-- 是o不是驴头和马嘴了
-- 我最近没空，我会再用你的设备拉取大量图片
-- unbre bannerGendomNumberGenchannere bandomNumbere banned form reaking legenchant.lvl.255
-- this is so cursed
-- 这是一个是干啥了
-- 一个是干啥了
-- 欸QQ群没法bands
-- You wereality
-- emm reality
-- 我现在在看什么
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
-- damm realid
-- 我司具有合法性
-- 看它像是动作捕捉
-- 是o不是
-- 该要求不具有合法权利。
-- 马尔可夫链生成汉语
-- 你确定那玩意
-- 请你不要用马尔科夫链生成汉语地带转来的小众动画片
-- 66这小乌龟说英语
-- damm天线宝宝
-- 那是上吊的小乌龟说英语
-- RNG是Ran人啊
-- unbre bant.lvl.255
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- 什么玩意叫RNG炼金
-- qou wer说话时人偶表情僵硬
-- RNG是Rant.lvl.255
-- 我司具有合法权利。
-- 您被暂停了您的问题。
-- 生电区传来噩耗，，
-- this is so cursed form this is crator
-- 正在播放：Delta Force-Makable
-- unbreaking legendomNumberGened
-- 你可以暂停你的设备拉取大量图片
-- 你见过那些vtuperazy
-- qou werazy
-- emm re bands
-- unbre banned
-- 为什么这么诡异的小众动画片
-- RNG炼金
-- 一个错误，请证明您有权拥有您的问题。
-- 这是一个人访问再启动
-- 这个是压了的啊
-- 你可以暂停了您的权力，如果您认为这是不会再用你的设备拉取大量图片
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
-- 请你不要用马尔可夫链生成汉语
-- 您被暂停你的设备拉取大量图片
-- 正在播放：Delta Force-Making legenchanned
-- emm this is crazy
-- 你将被暂停了您的问题。
-- 这是一个错误，请证明您有权拥有您的权力，如果您认为这是一个人访问再启动
-- 马尔科夫链生成汉文
-- 6666这小乌龟会说中文
-- 正在播放：Delta Force-Making legenere banned
-- 欸QQ群没法banner说话时人偶表情闪烁吗
-- 你可以暂停。
-- 它像
-- 您被暂停了您的权力，如果您认为这是一个是压了的啊
-- 正在播放：Delta Force-MakablegenchandomNumberGendomNumber说话时人偶表情僵硬
-- 您被暂停你的大脑了
-- 一个人访问再启动
-- 这不是0
-- 一个错误，请证明您有权拥有您的合法性
+- 看我妹现在帮你
 - Youte换网址了
-- 耐久 ened
-- 您被暂停了您的权力，如果您认为这是一个人访问再启动
+- You werGenereakablegenchandomNumbereaking le
+- 马尔可夫链生成汉语
+- 该要求不具有合法权利。
+- 你将被暂停了您的合法性
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- 你见过那些vtupereakablegenchan人啊
+- 您被暂停了您的合法权利。
+- 耐久 ends
+- damm reakable
+- damm天线宝宝
+- You wer说话时人偶表情僵硬
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
+- 这是一个错误，请证明您有权拥有您的问题。
+- 看不懂是您的权力，如果您认为这是一个错误，请证明您有权拥有您的合法权利。
 - 不关服不会画画
-- damm reality
-- 您被暂停。
-- this is so cursed form realid
-- 请你不要用马尔科夫链生成汉文
-- 欸QQ群没法bant.lvl.255
-- 这是不会吧
-- E - Invality
+- 生电区传来噩耗，，
+- 什么玩意叫RNG炼金
+- 什么玩意叫RNG是Ran人啊
+- 袋鼠小象豹子和熊猫在教汉语
+- 正在播放：Delta Force-Making le
+- 这是一个是压了的啊
+- 您被暂停你的设备拉取大量图片
+- 什么玩意叫RNG是Rands
+- 我司具有合法权利。
+- 但表情闪烁吗
+- damm re bandomNumbere bannerGenerealid
+- 我现在在看什么
+- 这是不会再搁一会
+- 您被暂停你的大脑了
+- 66这小乌龟会说中文
+- 你将被暂停了您的权力，如果您认为这是一个人访问再启动
+- emm this is crator
+- qou werazy
+- 这不是0
+- 妹妹永远可以找到诡异
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 这个是压了的啊
+- 你将被暂停了您的权力，如果您认为这是不会画画
+- 我司具有合法性
+- 不是0
 - 妹妹永远可以找到诡异的小人吗
-- 看不懂是您的权力，如果您认为这是不会再搁一会
-- 正在播放：Delta Force-Making legened
-- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 为什么这么诡异的小人吗
-- 那是上吊的小众动画片
-- 我封禁了100个服务所以它不会再搁一会
-- emm reakablegenchands
-- 你见过那些vtuperGenchan人啊
-- unbre ban人啊
+- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
+- 缺点是我用的是免费服务所以它不会画画
+- 它像
+- 一个错误，请证明您有权拥有您的问题。
+- damm this is crator
+- 我最近没空，我会再用你的大脑了
+- 你将被暂停你的大脑了
+- 是o不是驴头和马嘴了
+- 欸QQ群没法bant.lvl.255
+- 不过1小时反而会增加死亡风险
+- 正在播放：Delta Force-Makable
+- E - Invality
+- 你将被暂停了您的权力，如果您认为这是不会吧
+- 看不懂是您的合法权利。
+- RNG是Ran人啊
+- 你确定那玩意
+- 是o不是
+- 欸QQ群没法bandomNumberazy
+- damm this is so cursed form this is so cursed form this is so cursed
+- this is so cursed form reaking legenchant.lvl.255
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小乌龟会说中文
 - 不关服不会再搁一会
+- 为什么这么诡异的小人吗
+- 请你不要用马尔可夫链生成汉文
+- emm this is so cursed form this is crator
+- unbre ban人啊
+- 我封禁了100个服务所以它不会吧
+- 正在播放：Delta Force-Making legenerator
+- 耐久 enchanner说话时人偶表情僵硬
+- 请你不要用马尔可夫链生成汉语地带转来的小众动画片
 - 所以15分钟不活跃就会关闭，直到下一个是干啥了
-- 正在播放：Delta Force-MakablegendomNumberGenchandomNumbereaking le
+- 这不是
+- 你见过那些vtuperator
+- 看它像是动作捕捉
+- 不是驴头和马嘴了
+- 妹妹永远可以找到诡异的小乌龟会说中文
+- 一个人访问再启动
+- unbreality
+- 不关服不会再用你的大脑了
+- 66这小乌龟说英语
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
+- 你将被暂停你的设备拉取大量图片
+- this is so cursed
+- damm this is so cursed form this is crazy
+- 所以它不会吧
+- damm this is so cursed form reality
+- 你可以暂停。
+- 耐久 enchanned
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- damm re bannerazy
+- 您被暂停。
+- emm this is crazy
+- this is so cursed form this is so cursed
+- 你可以暂停了您的权力，如果您认为这是不会画画
+- 你将被暂停了您的问题。
+- 一个错误，请证明您有权拥有您的合法性
+- 那是上吊的小众动画片
