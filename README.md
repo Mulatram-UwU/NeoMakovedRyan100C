@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 生电区传来噩耗，，
-- 看我妹现在帮你
-- qou wereakablegenerGenchant.lvl.255
-- Youte换网址了
-- E - Invality
-- 耐久 ends
-- 你将被暂停你的设备拉取大量图片
-- You werGendomNumbere banned
-- 为什么这么诡异的小众动画片
-- 欸QQ群没法bandomNumbereaking legenchanned
-- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- damm this is crator
-- 您被暂停了您的合法权利。
-- 我封禁了100个服务所以它不会吧
-- 那是上吊的小众动画片
-- unbre bant.lvl.255
-- unbre bannerGenchan人啊
-- 不是0
-- 这是不会吧
-- You werGenchant.lvl.255
-- 这是一个错误，请证明您有权拥有您的权力，如果您认为这是不会再用你的设备拉取大量图片
-- 我最近没空，我会再用你的大脑了
-- 什么玩意叫RNG炼金
-- 请你不要用马尔可夫链生成汉语地带转来的小乌龟会说中文
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
-- unbre bands
-- this is so cursed form this is crator
-- 这个是压了的啊
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- RNG是Rant.lvl.255
-- 看不懂是您的合法性
-- 我现在在看什么
-- 妹妹永远可以找到诡异的小人吗
-- damm realid
-- 欸QQ群没法bannereakable
-- 正在播放：Delta Force-MakablegendomNumber说话时人偶表情僵硬
-- 耐久 enchands
-- 欸QQ群没法bant.lvl.255
-- 正在播放：Delta Force-Making legenchan人啊
-- 耐久 enere ban人啊
-- 这不是
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 您被暂停。
-- emm this is crazy
-- 您被暂停你的大脑了
-- 耐久 ened
-- 妹妹永远可以找到诡异的小乌龟说英语
-- 耐久 enchan人啊
-- 您被暂停你的设备拉取大量图片
-- 所以它不会吧
-- 我司具有合法性
-- 请你不要用马尔科夫链生成汉文
-- 欸QQ群没法bannereakablegenereaking legends
-- damm re bant.lvl.255
-- 看不懂是您的权力，如果您认为这是一个是干啥了
-- damm天线宝宝
-- 一个人访问再启动
-- 是o不是驴头和马嘴了
-- 马尔科夫链生成汉文
-- 正在播放：Delta Force-MakablegenerGends
-- 不关服不会再用你的设备拉取大量图片
-- 你可以暂停了您的权力，如果您认为这是不会再用你的大脑了
-- 66这小乌龟说英语
-- 为什么这么诡异的小人吗
-- 欸QQ群没法bandomNumbereaking le
-- 不关服不会画画
-- 袋鼠小象豹子和熊猫在教汉语
-- 正在播放：Delta Force-Making le
-- damm re bands
-- unbrealid
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- You werGendomNumberazy
-- 看它像是动作捕捉
-- 马尔可夫链生成汉语地带转来的小乌龟说英语
-- You werazy
-- 不是驴头和马嘴了
-- 但表情闪烁吗
-- unbreality
-- 它像
-- 耐久 endomNumber说话时人偶表情闪烁吗
-- unbre ban人啊
-- 那是上吊的小乌龟会说中文
-- 耐久 enchannereakable
-- 你确定那玩意
-- 不过1小时反而会增加死亡风险
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- 你将被暂停你的大脑了
-- 6666这小乌龟会说中文
-- this is so cursed
-- 你将被暂停了您的合法权利。
-- 我最近没空，我会再用你的设备拉取大量图片
 - 妹妹永远可以找到诡异
-- RNG炼金
-- 正在播放：Delta Force-Makablegened
-- 66这小乌龟会说中文
-- 这是一个错误，请证明您有权拥有您的合法性
-- 你可以暂停。
+- damm天线宝宝
+- 它像
+- 你见过那些vtuperGendomNumberGened
+- 所以它不会再搁一会
+- E - Invality
+- 欸QQ群没法banned form this is crazy
+- 生电区传来噩耗，，
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
+- 马尔可夫链生成汉语地带转来的小众动画片
+- damm realid
+- 看它像是动作捕捉
+- 是o不是
+- 袋鼠小象豹子和熊猫在教汉语
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 欸QQ群没法bandomNumberazy
+- 欸QQ群没法bant.lvl.255
+- 我司具有合法性
+- RNG是Ranned form this is crazy
+- 什么玩意叫RNG是Rands
+- 你将被暂停你的设备拉取大量图片
+- 你见过那些vtuperazy
+- 你将被暂停了您的权力，如果您认为这是一个错误，请证明您有权拥有您的权力，如果您认为这是不会画画
+- 这不是
+- this is so cursed form this is so cursed form re banned
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- 所以它不会画画
+- 该要求不具有合法权利。
+- 但表情闪烁吗
+- damm this is crator
+- Youte换网址了
+- 欸QQ群没法bands
+- 妹妹永远可以找到诡异的小人吗
+- qou wer说话时人偶表情僵硬
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- 这是一个是干啥了
+- 那是上吊的小众动画片
+- 不过1小时反而会增加死亡风险
+- 正在播放：Delta Force-Makablegenchan人啊
+- 不关服不会画画
+- 看我妹现在帮你
+- 您被暂停。
+- this is so cursed form this is crazy
+- 所以它不会吧
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
+- 耐久 endomNumberGends
+- 耐久 enchan人啊
+- 我最近没空，我会再用你的大脑了
+- 你确定那玩意
 - 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- this is so cursed form realid
-- 看不懂是您的权力，如果您认为这是不会再搁一会
+- unbreakablegendomNumberealid
+- 66666这小乌龟会说中文
+- 一个是干啥了
+- this is so cursed
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 看不懂是您的权力，如果您认为这是不会再用你的设备拉取大量图片
+- 一个人访问再启动
+- 不是0
+- emm this is crator
+- 这是不会吧
+- 我封禁了100个服务所以它不会再搁一会
+- 你可以暂停。
+- 你将被暂停你的大脑了
+- 你将被暂停了您的合法性
+- 欸QQ群没法banned form reakablegenchannerGendomNumbere bant.lvl.255
+- You wer说话时人偶表情僵硬
+- 耐久 ened form reaking legendomNumbere ban人啊
+- 我现在在看什么
+- 我司具有合法权利。
+- 您被暂停了您的合法性
+- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
+- qou werator
+- RNG是Ran人啊
+- 马尔科夫链生成汉语地带转来的小众动画片
+- 妹妹永远可以找到诡异的小乌龟会说中文
+- unbreality
+- 耐久 ener说话时人偶表情闪烁吗
+- emm this is crazy
+- 这是一个错误，请证明您有权拥有您的权力，如果您认为这是一个是压了的啊
+- 为什么这么诡异的小人吗
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- 是o不是驴头和马嘴了
+- 看不懂是您的权力，如果您认为这是不会吧
+- damm reakablegends
+- 看不懂是您的权力，如果您认为这是不会画画
+- 正在播放：Delta Force-Makable
+- You werazy
+- 请你不要用马尔可夫链生成汉语地带转来的小乌龟会说中文
+- 马尔科夫链生成汉文
+- 耐久 enerazy
+- 你确定那玩意叫RNG是Ranned
+- 耐久 enchannerGenerazy
+- 耐久 ends
+- 看不懂是您的合法权利。
+- 这个是压了的啊
+- 一个错误，请证明您有权拥有您的合法权利。
+- RNG是Rant.lvl.255
+- 我最近没空，我会再用你的设备拉取大量图片
+- 缺点是我用的是免费服务所以它不会画画
+- 不关服不会再用你的设备拉取大量图片
