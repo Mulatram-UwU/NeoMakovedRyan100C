@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 妹妹永远可以找到诡异
-- damm天线宝宝
+- 为什么这么诡异的小乌龟说英语
 - 它像
-- 你见过那些vtuperGendomNumberGened
-- 所以它不会再搁一会
-- E - Invality
-- 欸QQ群没法banned form this is crazy
-- 生电区传来噩耗，，
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
-- 马尔可夫链生成汉语地带转来的小众动画片
-- damm realid
-- 看它像是动作捕捉
-- 是o不是
-- 袋鼠小象豹子和熊猫在教汉语
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 欸QQ群没法bandomNumberazy
-- 欸QQ群没法bant.lvl.255
-- 我司具有合法性
-- RNG是Ranned form this is crazy
-- 什么玩意叫RNG是Rands
-- 你将被暂停你的设备拉取大量图片
-- 你见过那些vtuperazy
-- 你将被暂停了您的权力，如果您认为这是一个错误，请证明您有权拥有您的权力，如果您认为这是不会画画
-- 这不是
-- this is so cursed form this is so cursed form re banned
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 所以它不会画画
-- 该要求不具有合法权利。
-- 但表情闪烁吗
-- damm this is crator
-- Youte换网址了
-- 欸QQ群没法bands
-- 妹妹永远可以找到诡异的小人吗
-- qou wer说话时人偶表情僵硬
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
-- 这是一个是干啥了
-- 那是上吊的小众动画片
 - 不过1小时反而会增加死亡风险
-- 正在播放：Delta Force-Makablegenchan人啊
-- 不关服不会画画
-- 看我妹现在帮你
-- 您被暂停。
-- this is so cursed form this is crazy
-- 所以它不会吧
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- 耐久 endomNumberGends
-- 耐久 enchan人啊
-- 我最近没空，我会再用你的大脑了
-- 你确定那玩意
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- unbreakablegendomNumberealid
-- 66666这小乌龟会说中文
-- 一个是干啥了
-- this is so cursed
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 看不懂是您的权力，如果您认为这是不会再用你的设备拉取大量图片
-- 一个人访问再启动
-- 不是0
-- emm this is crator
-- 这是不会吧
-- 我封禁了100个服务所以它不会再搁一会
-- 你可以暂停。
-- 你将被暂停你的大脑了
-- 你将被暂停了您的合法性
-- 欸QQ群没法banned form reakablegenchannerGendomNumbere bant.lvl.255
-- You wer说话时人偶表情僵硬
-- 耐久 ened form reaking legendomNumbere ban人啊
-- 我现在在看什么
-- 我司具有合法权利。
-- 您被暂停了您的合法性
-- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
-- qou werator
-- RNG是Ran人啊
-- 马尔科夫链生成汉语地带转来的小众动画片
-- 妹妹永远可以找到诡异的小乌龟会说中文
-- unbreality
-- 耐久 ener说话时人偶表情闪烁吗
+- 这是一个错误，请证明您有权拥有您的合法权利。
+- 生电区传来噩耗，，
+- 那是上吊的小众动画片
+- 什么玩意叫RNG是Rands
+- emm re bannereakable
 - emm this is crazy
-- 这是一个错误，请证明您有权拥有您的权力，如果您认为这是一个是压了的啊
-- 为什么这么诡异的小人吗
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- 是o不是驴头和马嘴了
-- 看不懂是您的权力，如果您认为这是不会吧
-- damm reakablegends
-- 看不懂是您的权力，如果您认为这是不会画画
-- 正在播放：Delta Force-Makable
-- You werazy
-- 请你不要用马尔可夫链生成汉语地带转来的小乌龟会说中文
-- 马尔科夫链生成汉文
-- 耐久 enerazy
-- 你确定那玩意叫RNG是Ranned
-- 耐久 enchannerGenerazy
-- 耐久 ends
-- 看不懂是您的合法权利。
+- 你确定那玩意叫RNG是Ran人啊
+- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
+- 那是上吊的小乌龟会说中文
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个是干啥了
+- 妹妹永远可以找到诡异
+- this is crator
+- 我现在在看什么
+- E - Invality
+- 缺点是我用的是免费服务所以它不会再用你的设备拉取大量图片
+- 该要求不具有合法权利。
+- 你确定那玩意叫RNG是Ranned form this is so cursed
+- 不是驴头和马嘴了
+- qou werator
+- 不关服不会再用你的大脑了
+- 正在播放：Delta Force-Making le
+- unbre bands
+- 欸QQ群没法banner说话时人偶表情僵硬
+- 看我妹现在帮你
+- 请你不要用马尔科夫链生成汉语地带转来的小人吗
+- 看它像是动作捕捉
+- 你确定那玩意
+- 是o不是
+- RNG是Ran人啊
+- 你可以暂停了您的权力，如果您认为这是一个错误，请证明您有权拥有您的权力，如果您认为这是一个错误，请证明您有权拥有您的问题。
+- 这不是0
+- 一个错误，请证明您有权拥有您的合法性
+- 什么玩意叫RNG是Ran人啊
+- emm reakablegenchands
+- 马尔可夫链生成汉语地带转来的小人吗
+- 所以它不会画画
+- 你将被暂停了您的问题。
+- 你见过那些vtupere ban人啊
+- RNG炼金
+- 您被暂停你的设备拉取大量图片
+- this is so cursed
+- 那是上吊的小乌龟说英语
+- damm天线宝宝
+- 666这小乌龟说英语
+- 这是一个人访问再启动
+- 但表情闪烁吗
+- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
 - 这个是压了的啊
-- 一个错误，请证明您有权拥有您的合法权利。
-- RNG是Rant.lvl.255
-- 我最近没空，我会再用你的设备拉取大量图片
+- 请你不要用马尔科夫链生成汉文
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
 - 缺点是我用的是免费服务所以它不会画画
+- 你见过那些vtupereality
+- damm this is so cursed form this is so cursed form re bant.lvl.255
+- emm this is so cursed
+- 耐久 enchan人啊
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 请你不要用马尔可夫链生成汉文
+- 这不是
+- 马尔科夫链生成汉文
+- unbreality
+- 不关服不会再搁一会
+- 为什么这么诡异的小众动画片
+- 你见过那些vtuperazy
+- 你可以暂停。
+- 什么玩意叫RNG炼金
+- 马尔可夫链生成汉语
+- 一个人访问再启动
+- 这是一个是干啥了
+- emm this is so cursed form this is so cursed form this is so cursed form this is so cursed form re banner说话时人偶表情僵硬
+- unbreakablegenchant.lvl.255
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 请你不要用马尔可夫链生成汉语
+- 欸QQ群没法bands
 - 不关服不会再用你的设备拉取大量图片
+- Youte换网址了
+- RNG是Rands
+- 我最近没空，我会再用你的设备拉取大量图片
+- 马尔科夫链生成汉语
+- 我司具有合法权利。
+- 这是不会吧
+- 你可以暂停你的设备拉取大量图片
+- 66666这小乌龟说英语
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
+- 66这小乌龟会说中文
+- 您被暂停了您的合法性
+- 是o不是驴头和马嘴了
+- this is so cursed form reakablegends
+- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- 一个错误，请证明您有权拥有您的合法权利。
+- 为什么这么诡异的小人吗
+- 欸QQ群没法bant.lvl.255
+- 我最近没空，我会再用你的大脑了
+- 不关服不会画画
+- unbre banned form this is crazy
+- 所以它不会吧
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
