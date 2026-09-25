@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 看不懂是您的合法权利。
-- RNG炼金
-- 但表情闪烁吗
-- 欸QQ群没法bant.lvl.255
-- 您被暂停。
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 不是0
-- 看我妹现在帮你
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- damm this is so cursed form this is crazy
-- qou wer说话时人偶表情闪烁吗
-- 看它像是动作捕捉
-- 这是不会再用你的大脑了
-- 欸QQ群没法banned
-- 你见过那些vtuperazy
-- 这是不会再搁一会
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 正在播放：Delta Force-MakablegendomNumber说话时人偶表情僵硬
-- 你确定那玩意
-- 马尔可夫链生成汉语地带转来的小众动画片
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 你可以暂停了您的权力，如果您认为这是不会再搁一会
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法权利。
-- damm天线宝宝
-- 我最近没空，我会再用你的大脑了
-- 不过1小时反而会增加死亡风险
-- 不关服不会再搁一会
-- 你见过那些vtuperGenchan人啊
-- 生电区传来噩耗，，
-- unbreaking legends
-- qou wer说话时人偶表情僵硬
-- 正在播放：Delta Force-Making legenchant.lvl.255
-- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
-- 袋鼠小象豹子和熊猫在教汉语
-- 耐久 ened form re ban人啊
-- 耐久 enchan人啊
-- 正在播放：Delta Force-Makable
-- 所以15分钟不活跃就会关闭，直到下一个是干啥了
-- Youte换网址了
-- 妹妹永远可以找到诡异的小人吗
-- this is crator
-- 妹妹永远可以找到诡异
-- 正在播放：Delta Force-Makablegends
-- 这不是0
-- 为什么这么诡异的小人吗
-- 你可以暂停了您的合法权利。
-- damm re banned form this is so cursed
-- 一个是干啥了
-- 不是驴头和马嘴了
-- RNG是Rands
-- 66666这小乌龟说英语
-- 请你不要用马尔可夫链生成汉文
-- 为什么这么诡异的小众动画片
-- 这个是压了的啊
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
-- 正在播放：Delta Force-MakablegenerGends
-- 它像
-- 66这小乌龟说英语
-- 耐久 ened
-- 一个错误，请证明您有权拥有您的问题。
-- 该要求不具有合法权利。
-- damm realid
-- 请你不要用马尔科夫链生成汉语地带转来的小众动画片
-- 缺点是我用的是免费服务所以它不会吧
-- 什么玩意叫RNG炼金
-- 是o不是驴头和马嘴了
-- this is so cursed form reaking le
-- 马尔可夫链生成汉语
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- qou werGendomNumbere ban人啊
-- 请你不要用马尔科夫链生成汉文
-- unbrealid
-- this is so cursed form this is crazy
-- 这不是
-- 你可以暂停了您的问题。
-- 马尔科夫链生成汉文
-- 所以它不会画画
-- RNG是Ranned
-- E - Invality
-- 不关服不会画画
-- 你见过那些vtuperGends
-- 耐久 enchanned form this is crazy
-- 666666这小乌龟说英语
-- 66这小乌龟会说中文
-- 一个人访问再启动
-- 欸QQ群没法bandomNumberGends
-- 欸QQ群没法bands
-- 你见过那些vtupere bandomNumberGendomNumberGenerazy
-- this is so cursed form this is so cursed form reaking legenchant.lvl.255
-- 马尔可夫链生成汉语地带转来的小人吗
-- You werGenchands
-- 所以它不会再用你的大脑了
-- 我司具有合法权利。
+- 正在播放：Delta Force-Making le
+- 欸QQ群没法banner说话时人偶表情僵硬
 - 是o不是
-- 欸QQ群没法bandomNumberealid
-- 所以它不会吧
-- 你将被暂停了您的合法权利。
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- You werator
 - 所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 我司具有合法性
-- 666这小乌龟说英语
+- 马尔科夫链生成汉语地带转来的小乌龟会说中文
+- 耐久 enerazy
+- 66这小乌龟说英语
+- 是o不是驴头和马嘴了
+- qou werGendomNumber说话时人偶表情僵硬
+- 请你不要用马尔科夫链生成汉语地带转来的小众动画片
+- 你见过那些vtuperazy
+- 欸QQ群没法bandomNumbereality
+- 什么玩意叫RNG是Ran人啊
+- 您被暂停你的大脑了
+- 马尔科夫链生成汉文
+- 我最近没空，我会再用你的大脑了
+- qou wereaking le
+- unbrealid
+- 您被暂停了您的问题。
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小乌龟会说中文
+- 欸QQ群没法banner说话时人偶表情闪烁吗
+- 您被暂停。
+- qou wer说话时人偶表情闪烁吗
+- 一个人访问再启动
+- 你见过那些vtuper说话时人偶表情僵硬
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- 你可以暂停。
+- 耐久 ends
+- 看它像是动作捕捉
+- 不是驴头和马嘴了
+- 耐久 endomNumberGened form reaking legened
+- 这是不会吧
+- 马尔可夫链生成汉语
+- 这是不会再搁一会
+- emm reaking le
+- 您被暂停你的设备拉取大量图片
+- 看我妹现在帮你
+- qou werazy
+- 看不懂是您的合法性
+- 我最近没空，我会再用你的设备拉取大量图片
+- E - Invality
+- this is so cursed
+- 我司具有合法权利。
+- 你见过那些vtuperGenchanned
+- 不是0
+- emm this is crator
+- 正在播放：Delta Force-Makable
+- 什么玩意叫RNG炼金
+- 但表情闪烁吗
+- damm this is so cursed form this is crator
+- 所以它不会再用你的大脑了
+- 你确定那玩意叫RNG是Rant.lvl.255
+- 你确定那玩意
+- 正在播放：Delta Force-Makablegenere ban人啊
+- 耐久 endomNumberator
+- 所以它不会吧
+- Youte换网址了
+- 这是一个人访问再启动
+- 不过1小时反而会增加死亡风险
+- 不关服不会画画
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 请你不要用马尔科夫链生成汉文
+- 那是上吊的小众动画片
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 所以它不会画画
+- 为什么这么诡异的小乌龟说英语
+- 这不是0
+- 生电区传来噩耗，，
+- 该要求不具有合法权利。
+- this is crator
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
+- 欸QQ群没法bannereality
+- 一个是干啥了
+- damm this is so cursed form this is crazy
+- 看不懂是您的权力，如果您认为这是不会吧
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
+- unbre ban人啊
+- You were bannereality
+- qou werGened form this is so cursed form this is crazy
+- RNG炼金
+- 什么玩意叫RNG是Rant.lvl.255
+- unbreaking legenerGends
+- 这个是压了的啊
+- emm this is crazy
+- 一个错误，请证明您有权拥有您的权力，如果您认为这是一个是压了的啊
+- 一个错误，请证明您有权拥有您的权力，如果您认为这是不会画画
+- qou werealid
+- 你将被暂停你的设备拉取大量图片
+- 为什么这么诡异的小众动画片
+- damm re bant.lvl.255
+- 耐久 enchands
+- unbre bant.lvl.255
+- 它像
+- 你确定那玩意叫RNG是Ran人啊
+- 耐久 endomNumberazy
+- unbre bandomNumbereakablegenereality
+- emm realid
