@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- this is so cursed
-- 看我妹现在帮你
-- 不过1小时反而会增加死亡风险
-- 你见过那些vtuper说话时人偶表情僵硬
-- unbreality
-- 耐久 enchanned form reality
-- 什么玩意叫RNG炼金
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 一个是干啥了
-- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 欸QQ群没法bant.lvl.255
-- 一个错误，请证明您有权拥有您的问题。
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 我最近没空，我会再用你的设备拉取大量图片
-- Youte换网址了
-- unbre bant.lvl.255
-- 正在播放：Delta Force-Making le
-- 66这小乌龟说英语
-- damm reaking legenchandomNumberGened form reakablegends
-- 耐久 endomNumber说话时人偶表情僵硬
-- 不关服不会再搁一会
-- damm天线宝宝
-- 袋鼠小象豹子和熊猫在教汉语
-- 你可以暂停了您的问题。
-- 是o不是驴头和马嘴了
-- 什么玩意叫RNG是Ran人啊
-- 欸QQ群没法bands
-- damm reaking le
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
-- damm realid
-- RNG炼金
-- unbreakablegenerGendomNumber说话时人偶表情僵硬
-- 但表情闪烁吗
-- 为什么这么诡异的小众动画片
-- 不是驴头和马嘴了
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- 你将被暂停你的大脑了
-- 你见过那些vtuperGends
-- 这是不会吧
-- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- unbre ban人啊
-- qou werator
-- 你可以暂停。
-- 一个人访问再启动
-- 那是上吊的小乌龟说英语
-- 正在播放：Delta Force-Makablegenchant.lvl.255
-- 你将被暂停了您的合法权利。
-- 你见过那些vtuperGened form this is crazy
-- 您被暂停了您的问题。
-- emm this is crazy
-- 是o不是
-- damm reakable
-- 你确定那玩意
-- 正在播放：Delta Force-Makable
-- 你见过那些vtuperGenchands
-- 你见过那些vtuperator
-- 马尔科夫链生成汉语
-- 我封禁了100个服务所以它不会吧
-- 它像
-- 我封禁了100个服务所以它不会画画
-- this is crator
-- emm reality
-- 看它像是动作捕捉
-- 正在播放：Delta Force-MakablegenchandomNumbere bant.lvl.255
-- 请你不要用马尔可夫链生成汉文
-- 这不是
-- 你见过那些vtuperGened
-- 不关服不会画画
-- 耐久 ends
-- 您被暂停。
-- 你将被暂停了您的问题。
-- damm re bands
-- unbreaking le
-- 你确定那玩意叫RNG是Ran人啊
-- 我现在在看什么
-- 你将被暂停你的设备拉取大量图片
-- 这是不会再用你的大脑了
-- 这个是压了的啊
-- 不关服不会再用你的大脑了
-- 你见过那些vtuperGenchan人啊
-- 请你不要用马尔可夫链生成汉语
-- 欸QQ群没法banned form this is crazy
-- 生电区传来噩耗，，
-- 我司具有合法性
-- emm re bant.lvl.255
-- damm re bant.lvl.255
-- 我最近没空，我会再用你的大脑了
-- E - Invality
-- 不是0
 - 妹妹永远可以找到诡异
-- 耐久 endomNumbere bands
-- 妹妹永远可以找到诡异的小乌龟会说中文
-- 这不是0
+- 欸QQ群没法bandomNumbere bandomNumberGendomNumberGenchanner说话时人偶表情闪烁吗
 - 耐久 enerazy
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- 耐久 ened
+- 我封禁了100个服务所以它不会再搁一会
+- 这是一个是干啥了
+- 不关服不会再搁一会
+- 我最近没空，我会再用你的大脑了
+- 你将被暂停你的大脑了
+- 生电区传来噩耗，，
+- 那是上吊的小众动画片
+- damm天线宝宝
+- this is crator
+- 该要求不具有合法权利。
+- 是o不是驴头和马嘴了
+- 你见过那些vtuperazy
+- 什么玩意叫RNG是Ranner说话时人偶表情闪烁吗
+- 不关服不会画画
+- 正在播放：Delta Force-Makable
+- 妹妹永远可以找到诡异的小乌龟会说中文
+- 它像
+- emm this is crazy
+- 马尔可夫链生成汉语地带转来的小乌龟说英语
+- 马尔可夫链生成汉语地带转来的小人吗
+- 不是0
+- Youte换网址了
+- 6666这小乌龟说英语
+- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
+- 你见过那些vtuperator
 - 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 正在播放：Delta Force-Making legendomNumberazy
+- 这不是0
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
+- emm this is so cursed form this is crator
+- 你可以暂停。
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 66这小乌龟说英语
+- 袋鼠小象豹子和熊猫在教汉语
+- 为什么这么诡异的小众动画片
+- 为什么这么诡异的小乌龟会说中文
+- 这个是压了的啊
+- 请你不要用马尔科夫链生成汉语地带转来的小人吗
+- RNG炼金
+- 66这小乌龟会说中文
+- 一个错误，请证明您有权拥有您的合法权利。
+- 你将被暂停了您的权力，如果您认为这是一个是压了的啊
+- 欸QQ群没法bant.lvl.255
+- You werazy
+- qou wereaking legened form re bant.lvl.255
+- 你见过那些vtuperealid
+- 那是上吊的小乌龟会说中文
+- 妹妹永远可以找到诡异的小人吗
 - 马尔可夫链生成汉语
+- You wer说话时人偶表情闪烁吗
+- 你确定那玩意
+- this is so cursed form this is crazy
+- 你见过那些vtupere ban人啊
+- 请你不要用马尔可夫链生成汉语地带转来的小乌龟会说中文
+- 所以它不会画画
+- 但表情闪烁吗
+- 我现在在看什么
+- 一个错误，请证明您有权拥有您的问题。
+- emm reality
+- 这是一个是压了的啊
+- 欸QQ群没法banner说话时人偶表情闪烁吗
+- 你确定那玩意叫RNG是Rant.lvl.255
+- 你见过那些vtupere banner说话时人偶表情僵硬
+- 这是不会吧
+- 是o不是
+- 看我妹现在帮你
+- 耐久 enchanned
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- 欸QQ群没法banned form this is crator
+- 看它像是动作捕捉
+- emm this is crator
+- 您被暂停。
+- E - Invality
+- 缺点是我用的是免费服务所以它不会吧
+- RNG是Ran人啊
+- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
+- 我司具有合法性
+- RNG是RandomNumbereakable
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
+- 你确定那玩意叫RNG是Rands
+- 所以15分钟不活跃就会关闭，直到下一个是干啥了
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 马尔科夫链生成汉语
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- 你将被暂停了您的权力，如果您认为这是一个错误，请证明您有权拥有您的问题。
+- 耐久 endomNumber说话时人偶表情僵硬
+- qou werGened
+- 所以它不会再搁一会
+- emm re banned form this is so cursed form re bandomNumberGened form this is crazy
+- 不过1小时反而会增加死亡风险
+- 您被暂停你的设备拉取大量图片
+- RNG是Rands
+- 请你不要用马尔科夫链生成汉文
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的权力，如果您认为这是不会吧
+- 看不懂是您的权力，如果您认为这是一个人访问再启动
+- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
+- qou wereakablegener说话时人偶表情闪烁吗
