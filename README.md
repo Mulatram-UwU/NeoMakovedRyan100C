@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- You wereality
-- 袋鼠小象豹子和熊猫在教汉语
-- 我司具有合法性
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- 你确定那玩意
-- RNG炼金
-- 你可以暂停了您的问题。
-- this is so cursed
-- emm this is crazy
-- 这是一个人访问再启动
-- 那是上吊的小乌龟说英语
-- 这不是0
-- 欸QQ群没法bands
-- 这个是压了的啊
 - 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- this is crator
-- 666这小乌龟说英语
-- E - Invality
-- 不关服不会画画
-- damm天线宝宝
-- 正在播放：Delta Force-Makablegenchant.lvl.255
-- 正在播放：Delta Force-Making legened
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是压了的啊
-- 你见过那些vtuper说话时人偶表情僵硬
-- 耐久 endomNumberGened form this is crazy
-- 不过1小时反而会增加死亡风险
-- unbrealid
-- 是o不是
-- 欸QQ群没法bant.lvl.255
-- 66这小乌龟会说中文
-- qou wereaking legened form this is crator
-- 不关服不会再搁一会
-- 那是上吊的小众动画片
-- 不是驴头和马嘴了
-- qou were bannerazy
-- qou wer说话时人偶表情闪烁吗
-- 66这小乌龟说英语
-- 不关服不会再用你的设备拉取大量图片
-- 请你不要用马尔可夫链生成汉语地带转来的小众动画片
-- damm reakable
-- 我最近没空，我会再用你的大脑了
-- 正在播放：Delta Force-Makablegenchands
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 这不是
-- 一个错误，请证明您有权拥有您的权力，如果您认为这是一个人访问再启动
-- 生电区传来噩耗，，
-- 为什么这么诡异的小众动画片
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- damm re bandomNumbere bannere bant.lvl.255
-- emm reality
-- 不是0
-- qou werGends
-- 你将被暂停你的设备拉取大量图片
-- 我现在在看什么
-- 你见过那些vtuperealid
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 马尔科夫链生成汉语
-- 请你不要用马尔可夫链生成汉文
-- 你可以暂停。
-- 看它像是动作捕捉
-- emm re banned form this is crazy
-- 你将被暂停你的大脑了
-- 我封禁了100个服务所以它不会再用你的大脑了
-- 所以它不会再搁一会
-- 为什么这么诡异的小乌龟会说中文
-- 看不懂是您的权力，如果您认为这是不会吧
-- 看不懂是您的合法权利。
-- 看不懂是您的权力，如果您认为这是一个人访问再启动
-- 你见过那些vtuperGends
-- 你可以暂停你的设备拉取大量图片
-- 耐久 endomNumber说话时人偶表情闪烁吗
-- 看不懂是您的合法性
-- damm this is crator
-- You werator
-- emm reaking legends
-- 您被暂停。
-- 耐久 endomNumber说话时人偶表情僵硬
-- 请你不要用马尔科夫链生成汉文
-- 6666这小乌龟说英语
-- 是o不是驴头和马嘴了
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 欸QQ群没法bandomNumberazy
-- 什么玩意叫RNG炼金
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小乌龟会说中文
-- 正在播放：Delta Force-Makable
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个是干啥了
-- 一个人访问再启动
-- 这是一个错误，请证明您有权拥有您的合法权利。
-- 你确定那玩意叫RNG是Rant.lvl.255
-- 什么玩意叫RNG是Ran人啊
-- 所以15分钟不活跃就会关闭，直到下一个是压了的啊
-- 这是不会再搁一会
-- unbre banner说话时人偶表情僵硬
-- 它像
-- this is so cursed form this is crazy
-- qou werator
 - 但表情闪烁吗
-- 您被暂停了您的权力，如果您认为这是不会再用你的设备拉取大量图片
+- 你确定那玩意
+- 6666这小乌龟说英语
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个是干啥了
+- 是o不是
+- 您被暂停。
+- 请你不要用马尔可夫链生成汉语
+- 你将被暂停了您的合法权利。
+- 妹妹永远可以找到诡异
+- 不过1小时反而会增加死亡风险
+- 你将被暂停你的设备拉取大量图片
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
+- 马尔科夫链生成汉文
+- 一个人访问再启动
+- 看它像是动作捕捉
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 看我妹现在帮你
+- 66这小乌龟说英语
+- 什么玩意叫RNG是Ranned form reaking le
+- 我现在在看什么
+- E - Invality
+- 马尔可夫链生成汉语
+- 这不是0
+- 你将被暂停了您的问题。
+- damm天线宝宝
+- You wer说话时人偶表情闪烁吗
+- 该要求不具有合法权利。
+- emm this is crazy
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法权利。
+- 你见过那些vtupere bands
+- 这个是压了的啊
+- damm reaking le
+- damm realid
+- 不是驴头和马嘴了
+- 欸QQ群没法bant.lvl.255
+- 不关服不会画画
+- RNG是Rant.lvl.255
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
+- 我封禁了100个服务所以它不会再搁一会
+- 这是一个是干啥了
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- 它像
+- 请你不要用马尔可夫链生成汉文
+- 为什么这么诡异的小人吗
 - Youte换网址了
-- 不关服不会再用你的大脑了
+- 那是上吊的小众动画片
+- this is so cursed form this is crazy
+- this is so cursed form this is so cursed form re bant.lvl.255
+- this is so cursed form this is crator
+- 您被暂停你的设备拉取大量图片
+- 你见过那些vtuper说话时人偶表情僵硬
+- RNG炼金
+- 666这小乌龟说英语
+- 您被暂停了您的问题。
+- 是o不是驴头和马嘴了
+- this is so cursed form this is so cursed
+- 你见过那些vtupere bannerGened
+- 你可以暂停了您的问题。
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 我最近没空，我会再用你的大脑了
+- 欸QQ群没法bannere bant.lvl.255
+- 你见过那些vtupereakable
+- 正在播放：Delta Force-MakablegendomNumberGendomNumberGener说话时人偶表情闪烁吗
+- this is so cursed
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- 这是不会再用你的大脑了
+- 正在播放：Delta Force-Makable
+- You werator
+- 你将被暂停你的大脑了
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
+- damm reakable
+- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- 你见过那些vtuperGened
+- 正在播放：Delta Force-Making legenchant.lvl.255
+- 耐久 enchannerazy
+- damm reality
+- RNG是Ranned form this is so cursed
+- 不是0
+- 所以它不会画画
+- RNG是Rands
+- 你可以暂停。
+- 缺点是我用的是免费服务所以它不会吧
+- 这不是
+- 所以15分钟不活跃就会关闭，直到下一个是干啥了
+- 你将被暂停了您的权力，如果您认为这是不会吧
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- 这是一个错误，请证明您有权拥有您的合法权利。
+- 我司具有合法性
+- 这是不会再搁一会
+- 你可以暂停了您的合法性
+- You werGenerazy
+- 不关服不会再搁一会
+- 袋鼠小象豹子和熊猫在教汉语
+- 您被暂停了您的权力，如果您认为这是不会画画
+- 为什么这么诡异的小众动画片
+- damm re bant.lvl.255
+- 正在播放：Delta Force-Makablegenereakable
+- 这是不会再用你的设备拉取大量图片
