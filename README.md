@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 看我妹现在帮你
-- damm天线宝宝
-- 马尔科夫链生成汉语地带转来的小众动画片
-- 您被暂停了您的问题。
-- 请你不要用马尔科夫链生成汉文
-- 我现在在看什么
-- Youte换网址了
-- 你确定那玩意叫RNG是Rant.lvl.255
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- damm re bannerator
-- E - Invality
-- emm this is crator
-- 你确定那玩意
-- 一个是干啥了
-- 袋鼠小象豹子和熊猫在教汉语
-- 那是上吊的小乌龟说英语
-- 不关服不会画画
-- 66这小乌龟会说中文
-- qou werGened
-- 你可以暂停。
-- 不过1小时反而会增加死亡风险
-- 这个是压了的啊
-- this is so cursed form this is so cursed form this is crator
-- 它像
-- 您被暂停。
-- 生电区传来噩耗，，
-- RNG炼金
-- 你将被暂停你的大脑了
-- 这不是0
 - 一个错误，请证明您有权拥有您的问题。
-- 你见过那些vtuper说话时人偶表情僵硬
-- 你见过那些vtuperGened
-- 所以它不会画画
-- 耐久 enerazy
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 你确定那玩意叫RNG是Rands
-- 看它像是动作捕捉
+- 你可以暂停了您的问题。
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- this is so cursed form this is crator
+- damm this is crator
+- 您被暂停你的设备拉取大量图片
+- 不是0
+- damm reality
+- 一个人访问再启动
+- You werator
 - 是o不是
-- 妹妹永远可以找到诡异的小人吗
-- 为什么这么诡异的小人吗
+- 看不懂是您的合法性
+- 你见过那些vtupereality
+- 它像
+- 你将被暂停你的大脑了
+- damm天线宝宝
+- 看我妹现在帮你
+- this is crator
+- 你见过那些vtupere ban人啊
+- this is so cursed form this is crazy
+- 但表情闪烁吗
+- qou wereality
+- 你可以暂停了您的合法权利。
+- 耐久 ener说话时人偶表情闪烁吗
+- 66666这小乌龟说英语
+- 你可以暂停。
+- E - Invality
+- You wer说话时人偶表情闪烁吗
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 看不懂是您的权力，如果您认为这是一个是干啥了
+- 正在播放：Delta Force-Makable
+- 生电区传来噩耗，，
+- 我现在在看什么
+- 我司具有合法权利。
+- 你确定那玩意
+- 我最近没空，我会再用你的大脑了
+- 您被暂停。
+- 一个错误，请证明您有权拥有您的合法性
+- 正在播放：Delta Force-Making legenchant.lvl.255
+- emm reaking legenchan人啊
+- 你见过那些vtuperGendomNumberazy
+- damm reaking legenchan人啊
+- 正在播放：Delta Force-Making legenchanned
+- 缺点是我用的是免费服务所以它不会画画
+- damm this is so cursed form this is crazy
+- RNG是Rannerazy
+- 不是驴头和马嘴了
 - 这不是
 - 耐久 endomNumber说话时人偶表情闪烁吗
-- 欸QQ群没法bandomNumberGened
-- 什么玩意叫RNG炼金
+- 请你不要用马尔科夫链生成汉语地带转来的小众动画片
+- unbrealid
+- 妹妹永远可以找到诡异的小人吗
+- 不过1小时反而会增加死亡风险
+- 这不是0
+- 那是上吊的小众动画片
+- 这个是压了的啊
+- damm reakable
+- emm realid
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- 耐久 enchanner说话时人偶表情闪烁吗
+- 正在播放：Delta Force-Making le
+- 你可以暂停了您的权力，如果您认为这是不会再搁一会
+- 那是上吊的小乌龟说英语
+- 看它像是动作捕捉
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 该要求不具有合法权利。
 - 什么玩意叫RNG是Rands
-- 请你不要用马尔可夫链生成汉文
-- 你确定那玩意叫RNG是RandomNumberator
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 但表情闪烁吗
-- 欸QQ群没法bannerazy
-- unbre banned form this is so cursed
-- unbre ban人啊
-- 请你不要用马尔可夫链生成汉语地带转来的小众动画片
-- this is crator
-- 所以15分钟不活跃就会关闭，直到下一个是压了的啊
-- 正在播放：Delta Force-MakablegendomNumberazy
-- 你见过那些vtuperator
-- 是o不是驴头和马嘴了
-- 为什么这么诡异的小众动画片
-- 欸QQ群没法bant.lvl.255
-- You werazy
-- 我最近没空，我会再用你的大脑了
-- 妹妹永远可以找到诡异
-- emm this is so cursed
-- 您被暂停了您的合法权利。
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是压了的啊
-- 所以它不会吧
-- unbreality
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- 这是一个是压了的啊
-- 你将被暂停了您的问题。
-- RNG是Rannerazy
-- 不关服不会再搁一会
-- emm reality
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
-- unbre bandomNumbereaking le
 - 这是一个人访问再启动
-- 缺点是我用的是免费服务所以它不会再用你的大脑了
-- 你可以暂停了您的合法权利。
-- unbre bant.lvl.255
+- 所以15分钟不活跃就会关闭，直到下一个是干啥了
+- 欸QQ群没法banner说话时人偶表情僵硬
+- unbreaking legenerGenchandomNumberazy
 - 欸QQ群没法banner说话时人偶表情闪烁吗
-- 你见过那些vtupereakable
-- this is so cursed
-- 我最近没空，我会再用你的设备拉取大量图片
-- 这是不会再搁一会
-- 耐久 enerGends
-- 看不懂是您的合法性
-- 耐久 enchan人啊
-- 您被暂停了您的权力，如果您认为这是一个是压了的啊
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
-- emm this is crazy
-- unbre banned
-- this is so cursed form reakablegenchandomNumbere bandomNumberGenchands
-- 我封禁了100个服务所以它不会再搁一会
-- 我封禁了100个服务所以它不会吧
-- damm this is crator
-- damm this is so cursed form this is crator
+- 一个是干啥了
+- 欸QQ群没法bands
+- 请你不要用马尔可夫链生成汉文
+- 这是不会再用你的大脑了
+- 所以它不会吧
+- 袋鼠小象豹子和熊猫在教汉语
+- RNG是Rant.lvl.255
+- 什么玩意叫RNG炼金
+- this is so cursed form this is so cursed
+- 妹妹永远可以找到诡异的小乌龟说英语
+- 这是一个是干啥了
+- 正在播放：Delta Force-MakablegenchandomNumberGends
+- 正在播放：Delta Force-MakablegendomNumberGendomNumbereaking legenchant.lvl.255
+- 不关服不会画画
+- 耐久 enchanned form reaking legenchanner说话时人偶表情闪烁吗
+- 我封禁了100个服务所以它不会再用你的设备拉取大量图片
+- 耐久 endomNumbere banned form this is crator
+- 正在播放：Delta Force-Makablegened form this is crazy
+- emm re banned form this is so cursed form this is crazy
+- 你见过那些vtuper说话时人偶表情僵硬
+- 66这小乌龟会说中文
+- 耐久 enchannerealid
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
+- 不关服不会再搁一会
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- unbreality
+- qou werazy
+- 妹妹永远可以找到诡异
