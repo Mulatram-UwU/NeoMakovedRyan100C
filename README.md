@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 什么玩意叫RNG炼金
-- 妹妹永远可以找到诡异
-- damm天线宝宝
-- 我司具有合法权利。
-- RNG炼金
-- 你见过那些vtuperGenereality
-- 看它像是动作捕捉
-- emm this is crator
-- 那是上吊的小众动画片
-- 这不是
-- unbre banner说话时人偶表情闪烁吗
-- 您被暂停了您的权力，如果您认为这是不会画画
-- 您被暂停。
-- 为什么这么诡异的小众动画片
-- 你确定那玩意叫RNG是Rands
-- 我封禁了100个服务所以它不会画画
-- 是o不是
-- 看不懂是您的权力，如果您认为这是不会画画
-- 这个是压了的啊
-- 一个人访问再启动
-- 您被暂停了您的合法性
-- 你可以暂停。
-- You werGendomNumber说话时人偶表情僵硬
-- 我现在在看什么
-- 我最近没空，我会再用你的设备拉取大量图片
-- 缺点是我用的是免费服务所以它不会吧
-- damm reaking legenchandomNumberGener说话时人偶表情闪烁吗
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
-- 你见过那些vtuper说话时人偶表情僵硬
-- 它像
-- 你确定那玩意叫RNG是Ran人啊
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小乌龟会说中文
-- 您被暂停你的设备拉取大量图片
-- You werazy
-- 耐久 enerazy
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 66这小乌龟会说中文
-- 看我妹现在帮你
-- RNG是Rannerazy
-- emm this is crazy
-- damm reaking legends
-- 耐久 ends
-- 不是驴头和马嘴了
-- 欸QQ群没法bands
-- 欸QQ群没法bandomNumberGenchant.lvl.255
-- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 您被暂停你的大脑了
-- 这是一个是压了的啊
-- 正在播放：Delta Force-Makable
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- 你确定那玩意
-- 马尔科夫链生成汉文
-- unbreality
-- unbrealid
-- 马尔科夫链生成汉语
-- RNG是RandomNumberealid
-- qou werator
-- 但表情闪烁吗
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个是干啥了
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法性
-- 所以它不会画画
-- 这是不会吧
-- this is so cursed form this is so cursed form this is crazy
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
 - E - Invality
-- 我司具有合法性
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- damm this is crator
-- Youte换网址了
-- 这是一个错误，请证明您有权拥有您的问题。
-- 妹妹永远可以找到诡异的小乌龟说英语
-- 你可以暂停了您的问题。
-- 耐久 endomNumberazy
-- RNG是Ran人啊
-- unbreaking legenchanned form this is so cursed form this is so cursed
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- emm this is so cursed
+- damm reakablegenchandomNumber说话时人偶表情僵硬
+- 妹妹永远可以找到诡异的小乌龟会说中文
+- 为什么这么诡异的小乌龟会说中文
+- 我现在在看什么
 - 请你不要用马尔可夫链生成汉语
-- emm reakable
-- 看不懂是您的权力，如果您认为这是一个错误，请证明您有权拥有您的权力，如果您认为这是一个人访问再启动
-- 你确定那玩意叫RNG是Rant.lvl.255
-- 你可以暂停了您的权力，如果您认为这是不会吧
-- damm reaking le
-- 看不懂是您的合法权利。
-- 一个是干啥了
-- 该要求不具有合法权利。
-- unbreaking legenchan人啊
-- You wereakable
-- 你将被暂停了您的权力，如果您认为这是不会画画
-- 生电区传来噩耗，，
-- 缺点是我用的是免费服务所以它不会再搁一会
-- damm realid
-- this is crator
-- 袋鼠小象豹子和熊猫在教汉语
-- unbreaking le
-- 什么玩意叫RNG是Ran人啊
-- 欸QQ群没法bant.lvl.255
+- 这个是压了的啊
+- damm天线宝宝
+- Youte换网址了
+- 你可以暂停。
 - 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- You werGenchant.lvl.255
-- RNG是RandomNumberazy
-- qou werazy
+- 不关服不会画画
+- 这不是0
+- 袋鼠小象豹子和熊猫在教汉语
+- damm reakable
+- 看它像是动作捕捉
+- emm this is so cursed form this is crazy
+- unbrealid
+- 那是上吊的小众动画片
+- 但表情闪烁吗
+- 所以它不会再搁一会
+- unbre bandomNumberGened
+- 耐久 endomNumber说话时人偶表情闪烁吗
+- 生电区传来噩耗，，
+- 不过1小时反而会增加死亡风险
+- 妹妹永远可以找到诡异的小人吗
+- 这是一个人访问再启动
+- 什么玩意叫RNG是Ran人啊
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- RNG是Ranned form this is so cursed
+- emm this is so cursed
+- 不是驴头和马嘴了
+- 666这小乌龟说英语
+- 请你不要用马尔可夫链生成汉文
+- 你确定那玩意
+- 一个错误，请证明您有权拥有您的问题。
+- 你见过那些vtuperator
+- 一个是干啥了
+- RNG炼金
+- 你见过那些vtuperGenchan人啊
+- 所以它不会吧
+- 正在播放：Delta Force-Makablegened
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
+- 正在播放：Delta Force-Makablegenchan人啊
+- 看不懂是您的权力，如果您认为这是一个人访问再启动
+- this is so cursed form this is so cursed
+- 是o不是
+- 看不懂是您的权力，如果您认为这是不会吧
+- 这不是
+- 它像
+- 这是一个是干啥了
+- You werGenere bant.lvl.255
+- 欸QQ群没法bands
+- 所以它不会画画
+- 所以15分钟不活跃就会关闭，直到下一个是干啥了
+- 不关服不会再搁一会
+- emm this is crazy
+- 为什么这么诡异的小乌龟说英语
+- 耐久 ened form this is crator
+- 欸QQ群没法bannerGendomNumberazy
+- 妹妹永远可以找到诡异
+- 你见过那些vtuperGened
+- 我封禁了100个服务所以它不会再搁一会
+- 看不懂是您的合法权利。
+- qou wer说话时人偶表情闪烁吗
+- 耐久 enchanned
+- 一个人访问再启动
+- this is crator
+- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- 我司具有合法性
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个是压了的啊
+- 你见过那些vtuperealid
+- You werazy
+- 那是上吊的小乌龟会说中文
+- 6666这小乌龟会说中文
+- 你将被暂停了您的权力，如果您认为这是一个错误，请证明您有权拥有您的合法权利。
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法权利。
+- 你见过那些vtuperGendomNumberazy
+- unbreality
+- 我最近没空，我会再用你的大脑了
+- 那是上吊的小乌龟说英语
+- 该要求不具有合法权利。
+- 我司具有合法权利。
+- RNG是Rands
+- 你将被暂停你的大脑了
+- 正在播放：Delta Force-Makable
+- RNG是Rant.lvl.255
+- 不关服不会再用你的设备拉取大量图片
+- this is so cursed form reaking legenchannerazy
+- 我封禁了100个服务所以它不会再用你的设备拉取大量图片
+- 你见过那些vtupere banned
+- 您被暂停。
+- You wereality
+- 为什么这么诡异的小众动画片
+- 我封禁了100个服务所以它不会画画
+- 马尔可夫链生成汉语地带转来的小人吗
+- 正在播放：Delta Force-Making le
+- 正在播放：Delta Force-Making legened
