@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 我现在在看什么
-- 不是驴头和马嘴了
-- 您被暂停。
-- 看不懂是您的合法权利。
-- 我最近没空，我会再用你的设备拉取大量图片
-- 什么玩意叫RNG炼金
-- 你见过那些vtuperazy
-- You werazy
-- 你可以暂停了您的权力，如果您认为这是不会画画
-- 我司具有合法权利。
-- 这个是压了的啊
-- 那是上吊的小众动画片
-- 您被暂停了您的合法权利。
-- 正在播放：Delta Force-Making le
-- You werGenere ban人啊
-- 正在播放：Delta Force-Makable
-- 我封禁了100个服务所以它不会吧
-- unbrealid
-- 您被暂停你的大脑了
-- 这是不会吧
-- 请你不要用马尔可夫链生成汉文
-- 你确定那玩意叫RNG是RandomNumberazy
-- 所以它不会再搁一会
-- 看我妹现在帮你
-- 但表情闪烁吗
-- damm re banned
-- 马尔可夫链生成汉语地带转来的小人吗
-- 欸QQ群没法bant.lvl.255
-- 66这小乌龟会说中文
-- 该要求不具有合法权利。
-- 欸QQ群没法bannerealid
-- 你见过那些vtuperGenchanner说话时人偶表情闪烁吗
-- E - Invality
-- 袋鼠小象豹子和熊猫在教汉语
-- 看不懂是您的合法性
-- 你确定那玩意叫RNG是Ranned
-- 它像
-- 你见过那些vtuperator
-- 你可以暂停。
-- 一个人访问再启动
-- You werator
-- 不过1小时反而会增加死亡风险
-- 这是一个人访问再启动
-- 您被暂停了您的权力，如果您认为这是一个错误，请证明您有权拥有您的合法性
-- 正在播放：Delta Force-MakablegenchandomNumberGenchands
-- emm realid
-- 是o不是驴头和马嘴了
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
-- unbreakablegenerazy
-- 妹妹永远可以找到诡异
-- 看它像是动作捕捉
-- 这不是0
-- unbreaking le
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小乌龟会说中文
-- 马尔科夫链生成汉语地带转来的小人吗
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- 你见过那些vtuperGenchant.lvl.255
-- 一个错误，请证明您有权拥有您的合法权利。
-- emm this is crazy
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 生电区传来噩耗，，
-- 这不是
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 是o不是
-- 请你不要用马尔可夫链生成汉语地带转来的小人吗
-- 为什么这么诡异的小人吗
-- 我最近没空，我会再用你的大脑了
-- 耐久 enchannerazy
-- 你确定那玩意叫RNG是Ran人啊
-- 妹妹永远可以找到诡异的小乌龟会说中文
-- emm this is so cursed
-- 你将被暂停你的设备拉取大量图片
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
-- damm re bant.lvl.255
-- 欸QQ群没法banned form this is crator
-- RNG炼金
-- 你见过那些vtuper说话时人偶表情僵硬
-- RNG是Rands
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- emm reaking legenchant.lvl.255
-- 马尔科夫链生成汉语地带转来的小乌龟说英语
-- 那是上吊的小乌龟说英语
-- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- damm this is crator
-- 一个是干啥了
-- damm天线宝宝
-- 你确定那玩意叫RNG是Rant.lvl.255
-- 耐久 ends
-- 欸QQ群没法bands
-- 马尔可夫链生成汉语
-- this is crator
-- unbre bannerGendomNumber说话时人偶表情僵硬
-- 妹妹永远可以找到诡异的小人吗
-- 不关服不会画画
 - 你确定那玩意
-- 这是一个是干啥了
-- 这是不会再用你的设备拉取大量图片
-- 马尔科夫链生成汉语
-- 为什么这么诡异的小乌龟会说中文
+- 66这小乌龟说英语
+- 不是驴头和马嘴了
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小乌龟会说中文
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 你可以暂停了您的问题。
+- 但表情闪烁吗
+- unbre bant.lvl.255
+- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- qou wer说话时人偶表情僵硬
+- 为什么这么诡异的小众动画片
+- 袋鼠小象豹子和熊猫在教汉语
+- 所以它不会再搁一会
+- qou werazy
+- 耐久 enere bands
+- 不关服不会画画
+- 耐久 endomNumbere bant.lvl.255
+- 不是0
+- RNG炼金
+- 我现在在看什么
+- 66这小乌龟会说中文
+- 你见过那些vtuperazy
+- emm this is so cursed
+- 这是一个是压了的啊
+- 您被暂停了您的合法权利。
+- 为什么这么诡异的小人吗
+- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- 耐久 enchands
+- 您被暂停你的设备拉取大量图片
+- 它像
+- 所以它不会画画
+- unbreaking legendomNumberGends
+- 一个人访问再启动
+- You wer说话时人偶表情僵硬
+- 这不是
+- 那是上吊的小众动画片
+- 正在播放：Delta Force-Makablegends
+- 缺点是我用的是免费服务所以它不会吧
+- damm this is so cursed form this is crazy
+- 马尔可夫链生成汉语地带转来的小人吗
+- 你可以暂停了您的权力，如果您认为这是不会画画
+- 我封禁了100个服务所以它不会画画
+- 你将被暂停了您的合法性
+- 马尔可夫链生成汉语地带转来的小乌龟说英语
+- 正在播放：Delta Force-Making le
+- emm reakablegends
+- 看它像是动作捕捉
+- 你可以暂停了您的权力，如果您认为这是一个错误，请证明您有权拥有您的问题。
+- 6666这小乌龟说英语
+- qou wereaking legened form this is crator
+- 你将被暂停了您的权力，如果您认为这是一个是压了的啊
+- 你确定那玩意叫RNG是Rant.lvl.255
+- 什么玩意叫RNG是Rant.lvl.255
+- damm reaking le
+- 你将被暂停了您的问题。
+- 这个是压了的啊
+- 请你不要用马尔科夫链生成汉语地带转来的小乌龟说英语
+- 你将被暂停了您的权力，如果您认为这是不会画画
+- damm re banned form this is crator
+- 马尔科夫链生成汉文
+- 你将被暂停你的大脑了
+- unbreakablegends
+- 你可以暂停了您的合法权利。
+- 耐久 enchannerazy
+- 所以它不会吧
+- 请你不要用马尔可夫链生成汉语
+- Youte换网址了
+- 您被暂停了您的问题。
+- 看不懂是您的合法权利。
+- You were bands
+- You wereality
+- unbre bandomNumberazy
+- You wer说话时人偶表情闪烁吗
+- this is so cursed form reality
+- 这不是0
+- emm realid
+- 这是一个人访问再启动
+- 妹妹永远可以找到诡异的小人吗
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- 请你不要用马尔可夫链生成汉文
+- 一个错误，请证明您有权拥有您的合法权利。
+- 妹妹永远可以找到诡异
+- 欸QQ群没法bands
+- 欸QQ群没法bant.lvl.255
+- 666这小乌龟说英语
+- emm this is crazy
+- 是o不是驴头和马嘴了
+- emm reakablegened
+- 你见过那些vtuperGendomNumberGened
+- 你见过那些vtuperGenchant.lvl.255
+- 你见过那些vtuperGendomNumbere bant.lvl.255
+- 看不懂是您的合法性
+- damm this is crator
+- 我最近没空，我会再用你的设备拉取大量图片
+- 我最近没空，我会再用你的大脑了
+- 我司具有合法性
+- 为什么这么诡异的小乌龟说英语
+- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- 欸QQ群没法bandomNumber说话时人偶表情闪烁吗
+- 你见过那些vtuperGenchan人啊
