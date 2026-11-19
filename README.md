@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 它像
-- 你可以暂停。
-- 请你不要用马尔科夫链生成汉文
-- 这是不会吧
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- 为什么这么诡异的小众动画片
-- 我最近没空，我会再用你的设备拉取大量图片
-- qou werazy
-- Youte换网址了
-- 一个错误，请证明您有权拥有您的问题。
-- 您被暂停你的设备拉取大量图片
-- 生电区传来噩耗，，
-- 欸QQ群没法bandomNumbereakable
-- 所以它不会吧
-- 该要求不具有合法权利。
-- 是o不是
-- 欸QQ群没法bandomNumbere bandomNumbereakablegened
-- 欸QQ群没法bant.lvl.255
-- 我现在在看什么
-- 看我妹现在帮你
-- 所以它不会画画
-- 看它像是动作捕捉
-- 66这小乌龟说英语
-- 但表情闪烁吗
 - damm天线宝宝
-- 你将被暂停了您的合法性
-- 一个人访问再启动
-- 妹妹永远可以找到诡异的小乌龟说英语
-- 我司具有合法权利。
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 您被暂停了您的权力，如果您认为这是一个错误，请证明您有权拥有您的权力，如果您认为这是不会再用你的设备拉取大量图片
-- unbreaking legenchannereality
-- 你确定那玩意叫RNG是Ran人啊
-- 看不懂是您的权力，如果您认为这是一个是干啥了
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 这是不会再搁一会
-- E - Invality
+- 耐久 ends
 - 不关服不会再搁一会
-- 你将被暂停你的大脑了
-- 耐久 enchan人啊
-- qou wer说话时人偶表情僵硬
-- emm this is crazy
-- 所以15分钟不活跃就会关闭，直到下一个是干啥了
-- 正在播放：Delta Force-Makable
-- 那是上吊的小乌龟说英语
-- 看不懂是您的权力，如果您认为这是不会画画
-- 妹妹永远可以找到诡异
-- 那是上吊的小众动画片
-- 你确定那玩意
-- 这个是压了的啊
-- 你见过那些vtupere ban人啊
-- 不是驴头和马嘴了
-- 为什么这么诡异的小乌龟会说中文
-- 欸QQ群没法bandomNumber说话时人偶表情闪烁吗
-- 马尔科夫链生成汉文
-- RNG是Ran人啊
-- 这不是
-- 请你不要用马尔可夫链生成汉语地带转来的小众动画片
-- unbre bant.lvl.255
-- unbreakablegenerazy
-- 袋鼠小象豹子和熊猫在教汉语
-- 你见过那些vtuper说话时人偶表情僵硬
-- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
-- this is so cursed form this is so cursed form realid
-- 一个错误，请证明您有权拥有您的合法权利。
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 不过1小时反而会增加死亡风险
-- this is crator
-- 您被暂停。
-- 你可以暂停了您的合法权利。
-- 6666这小乌龟说英语
-- 什么玩意叫RNG炼金
-- RNG是Rands
-- 正在播放：Delta Force-Making le
-- 这是不会再用你的设备拉取大量图片
-- 你见过那些vtuperGenchanner说话时人偶表情僵硬
-- 这是一个错误，请证明您有权拥有您的问题。
-- 什么玩意叫RNG是RandomNumberGener说话时人偶表情闪烁吗
-- 为什么这么诡异的小人吗
-- 欸QQ群没法bands
-- 不是0
-- 这是一个人访问再启动
-- 一个错误，请证明您有权拥有您的权力，如果您认为这是一个人访问再启动
-- 看不懂是您的合法权利。
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
-- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
-- 欸QQ群没法banned
-- 我封禁了100个服务所以它不会吧
-- qou wer说话时人偶表情闪烁吗
-- damm re bant.lvl.255
-- qou werGened form reaking le
-- unbreakablegenchannerGenchannereaking legenchands
-- 是o不是驴头和马嘴了
-- 这是一个是压了的啊
-- 你见过那些vtupereality
-- emm realid
-- emm this is so cursed form this is crazy
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 所以它不会吧
+- this is so cursed
+- 我现在在看什么
+- 你见过那些vtuperator
+- RNG炼金
+- 这是不会吧
 - 这不是0
-- You were bannereaking le
-- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- 请你不要用马尔科夫链生成汉语地带转来的小人吗
+- 袋鼠小象豹子和熊猫在教汉语
+- 我最近没空，我会再用你的设备拉取大量图片
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 妹妹永远可以找到诡异的小人吗
+- 欸QQ群没法bannerGendomNumberGends
+- 看它像是动作捕捉
+- 你确定那玩意
+- 马尔科夫链生成汉文
+- 看不懂是您的合法权利。
+- damm reaking le
+- 耐久 ened form this is so cursed
+- 请你不要用马尔可夫链生成汉文
+- 是o不是
+- RNG是Ranner说话时人偶表情闪烁吗
+- 不关服不会画画
+- 看不懂是您的合法性
+- emm this is crazy
+- 你见过那些vtuperGends
+- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
+- 不关服不会再用你的设备拉取大量图片
+- 您被暂停了您的权力，如果您认为这是一个是压了的啊
+- 妹妹永远可以找到诡异
+- RNG是RannerGendomNumberGends
+- 您被暂停。
+- damm realid
+- 什么玩意叫RNG是Ran人啊
+- unbreality
+- 正在播放：Delta Force-Makablegends
+- 耐久 enchandomNumbereakablegenchanned
+- 一个人访问再启动
+- 一个错误，请证明您有权拥有您的合法权利。
+- 你将被暂停了您的问题。
+- 我封禁了100个服务所以它不会画画
+- 它像
+- 这个是压了的啊
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
+- 你可以暂停了您的合法性
+- 请你不要用马尔科夫链生成汉文
+- 马尔可夫链生成汉语地带转来的小众动画片
+- 正在播放：Delta Force-Makable
+- 6666这小乌龟会说中文
+- damm this is so cursed form this is crator
+- 一个错误，请证明您有权拥有您的权力，如果您认为这是一个错误，请证明您有权拥有您的权力，如果您认为这是不会吧
+- 生电区传来噩耗，，
+- 正在播放：Delta Force-Making legenchant.lvl.255
+- E - Invality
+- 什么玩意叫RNG是Ranned
+- 是o不是驴头和马嘴了
+- 你可以暂停你的设备拉取大量图片
+- 这不是
+- 欸QQ群没法banned
+- damm reakablegends
+- 你见过那些vtuperazy
+- this is so cursed form this is crator
+- 看我妹现在帮你
+- 一个错误，请证明您有权拥有您的权力，如果您认为这是一个错误，请证明您有权拥有您的合法权利。
+- 为什么这么诡异的小人吗
+- RNG是Rands
+- 马尔科夫链生成汉语地带转来的小众动画片
+- 这是一个人访问再启动
+- 不过1小时反而会增加死亡风险
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的权力，如果您认为这是一个错误，请证明您有权拥有您的权力，如果您认为这是一个是干啥了
+- 那是上吊的小乌龟会说中文
+- 你可以暂停。
+- 但表情闪烁吗
+- 我司具有合法权利。
+- 欸QQ群没法bandomNumberealid
+- Youte换网址了
+- 所以它不会画画
+- 您被暂停你的设备拉取大量图片
+- damm re banned form this is crazy
+- 您被暂停了您的问题。
+- 欸QQ群没法bant.lvl.255
+- 妹妹永远可以找到诡异的小乌龟说英语
+- 什么玩意叫RNG是Rant.lvl.255
+- 耐久 enchan人啊
+- 你确定那玩意叫RNG是Ranned form this is so cursed
+- 这是一个错误，请证明您有权拥有您的问题。
+- emm reality
+- 欸QQ群没法bandomNumberator
+- 不关服不会再用你的大脑了
+- 您被暂停了您的合法权利。
+- 你将被暂停了您的权力，如果您认为这是不会再搁一会
+- 不是0
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
+- RNG是Rant.lvl.255
+- damm reakable
+- 缺点是我用的是免费服务所以它不会吧
