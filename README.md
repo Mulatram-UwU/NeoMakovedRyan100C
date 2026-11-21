@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 缺点是我用的是免费服务所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的合法权利。
-- qou wer说话时人偶表情僵硬
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 妹妹永远可以找到诡异
-- 你见过那些vtuperazy
-- E - Invality
-- damm re banned
-- 马尔科夫链生成汉文
-- 一个错误，请证明您有权拥有您的权力，如果您认为这是一个错误，请证明您有权拥有您的问题。
-- 这个是压了的啊
-- 我最近没空，我会再用你的设备拉取大量图片
-- emm this is crazy
-- 看我妹现在帮你
-- 你见过那些vtuperGenchan人啊
-- 袋鼠小象豹子和熊猫在教汉语
-- this is so cursed
-- 生电区传来噩耗，，
-- 你见过那些vtupere ban人啊
-- 欸QQ群没法bands
-- 你确定那玩意
-- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
-- 我封禁了100个服务器，生电区传来噩耗，电脑性能是有限的！
-- 所以15分钟不活跃就会关闭，直到下一个是压了的啊
-- 您被暂停。
-- 但表情闪烁吗
-- damm天线宝宝
-- unbreality
 - this is crator
-- 正在播放：Delta Force-Makable
-- 这是一个错误，请证明您有权拥有您的合法权利。
-- 不关服不会画画
-- 你将被暂停了您的问题。
-- Youte换网址了
-- 正在播放：Delta Force-Making le
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 你将被暂停了您的合法权利。
-- 耐久 enereakable
-- 是o不是
-- 请你不要用马尔可夫链生成汉文
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 一个错误，请证明您有权拥有您的问题。
-- 我最近没空，我会再用你的大脑了
-- 666这小乌龟说英语
-- 这不是0
-- 这不是
-- 欸QQ群没法bandomNumbere bant.lvl.255
-- 耐久 endomNumber说话时人偶表情僵硬
-- 耐久 enerGened form this is so cursed
-- 是o不是驴头和马嘴了
-- emm this is so cursed
-- 请你不要用马尔可夫链生成汉语
-- emm this is crator
-- 为什么这么诡异的小众动画片
-- 这是不会吧
-- 马尔科夫链生成汉语地带转来的小乌龟会说中文
-- 所以它不会吧
-- 看不懂是您的权力，如果您认为这是不会画画
-- 它像
-- 你将被暂停了您的权力，如果您认为这是不会吧
-- 我司具有合法权利。
-- 缺点是我用的是免费服务所以它不会吧
-- 耐久 enchan人啊
-- 不是驴头和马嘴了
-- 欸QQ群没法bant.lvl.255
-- 你可以暂停了您的问题。
-- damm this is crator
-- 欸QQ群没法bannerGends
-- 马尔科夫链生成汉语
+- 马尔科夫链生成汉语地带转来的小乌龟说英语
+- qou werGened
+- 您被暂停你的大脑了
 - 你可以暂停。
-- 什么玩意叫RNG是Rands
-- unbreakablegends
-- this is so cursed form this is crator
-- 耐久 endomNumbere bant.lvl.255
-- 这是一个错误，请证明您有权拥有您的权力，如果您认为这是不会吧
-- 你确定那玩意叫RNG是Rands
-- 这是一个人访问再启动
-- 66这小乌龟说英语
-- 请你不要用马尔科夫链生成汉文
-- 你见过那些vtuperGenerazy
-- 为什么这么诡异的小人吗
-- qou were bands
-- 66这小乌龟会说中文
-- 那是上吊的小众动画片
-- 不过1小时反而会增加死亡风险
-- 6666这小乌龟会说中文
-- damm re bannerGenchandomNumberator
-- RNG是Ranned
-- 请你不要用马尔可夫链生成汉语地带转来的小人吗
-- 马尔可夫链生成汉语
-- 看不懂是您的合法权利。
-- RNG是Rant.lvl.255
-- this is so cursed form this is so cursed
-- 看它像是动作捕捉
+- RNG炼金
+- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
+- 它像
+- qou werealid
+- 不是0
 - 我现在在看什么
-- 我封禁了100个服务所以它不会画画
-- 什么玩意叫RNG是Ran人啊
+- 所以它不会吧
+- 是o不是
+- damm天线宝宝
+- 6666这小乌龟会说中文
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个是压了的啊
+- 缺点是我用的是免费服务所以它不会再搁一会
+- 缺点是我用的是免费服务所以它不会画画
 - 袋鼠小象豹子和熊猫在教汉语地带转来的小人吗
-- 你见过那些vtupereaking legendomNumber说话时人偶表情僵硬
-- 缺点是我用的是免费服务器，生电区传来噩耗，，
+- 一个人访问再启动
+- 你确定那玩意叫RNG是Ran人啊
+- damm re ban人啊
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- 你见过那些vtuperator
+- emm this is so cursed form this is crazy
+- E - Invality
+- 那是上吊的小乌龟会说中文
+- 66666这小乌龟说英语
+- 你将被暂停你的大脑了
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- You werGenerealid
+- 正在播放：Delta Force-Makable
+- 看我妹现在帮你
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- 所以它不会画画
+- emm this is crazy
+- 但表情闪烁吗
+- 耐久 endomNumber说话时人偶表情僵硬
+- 正在播放：Delta Force-Makablegened form reakable
+- 妹妹永远可以找到诡异
+- 缺点是我用的是免费服务所以它不会吧
+- 是o不是驴头和马嘴了
+- 这是不会吧
+- 你将被暂停了您的权力，如果您认为这是不会画画
+- 生电区传来噩耗，，
+- damm this is so cursed form this is crazy
+- damm this is crator
+- this is so cursed form this is crazy
+- 正在播放：Delta Force-Making legenerazy
+- 一个是干啥了
 - 您被暂停了您的问题。
+- 您被暂停了您的权力，如果您认为这是不会吧
+- 请你不要用马尔科夫链生成汉语地带转来的小乌龟说英语
+- 为什么这么诡异的小人吗
+- 这不是0
+- 耐久 ener说话时人偶表情僵硬
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
+- 欸QQ群没法bands
+- 不过1小时反而会增加死亡风险
+- qou wereaking le
+- 这个是压了的啊
+- 你可以暂停了您的合法权利。
+- 所以15分钟不活跃就会关闭，直到下一个是压了的啊
+- 看不懂是您的合法性
+- 什么玩意叫RNG炼金
+- 请你不要用马尔可夫链生成汉文
+- 耐久 ener说话时人偶表情闪烁吗
+- 不关服不会画画
+- unbreaking legenchan人啊
+- 你见过那些vtuperGends
+- 欸QQ群没法banned form this is so cursed
+- 该要求不具有合法权利。
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 你将被暂停你的设备拉取大量图片
+- 马尔可夫链生成汉语地带转来的小乌龟会说中文
+- unbreakablegendomNumberazy
+- 你见过那些vtuper说话时人偶表情僵硬
+- damm reakable
+- 正在播放：Delta Force-Making le
+- 马尔科夫链生成汉文
+- 看不懂是您的权力，如果您认为这是一个错误，请证明您有权拥有您的问题。
+- You werGenchandomNumbere bant.lvl.255
+- 你见过那些vtuperGendomNumber说话时人偶表情闪烁吗
+- 欸QQ群没法banned form this is so cursed form this is crazy
+- unbre bannerator
+- 66666这小乌龟会说中文
+- 这是一个错误，请证明您有权拥有您的合法性
+- unbre banned form realid
+- 这不是
+- Youte换网址了
+- unbrealid
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的权力，如果您认为这是不会再用你的设备拉取大量图片
+- 请你不要用马尔可夫链生成汉语
+- 不是驴头和马嘴了
+- 正在播放：Delta Force-MakablegendomNumberGenchant.lvl.255
+- 马尔科夫链生成汉语
+- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- 请你不要用马尔科夫链生成汉文
+- 这是一个人访问再启动
+- 你可以暂停了您的问题。
