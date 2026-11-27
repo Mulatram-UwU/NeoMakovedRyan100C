@@ -1,103 +1,103 @@
 # NeoMarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 我封禁了100个服务所以15分钟不活跃就会关闭，直到下一个人访问再启动
-- 该要求不具有正常对话能力并有医院进行病人的救治。
-- 欸QQ群没法bannerGendomNumber说话时人偶表情闪烁吗
-- 是o不是
-- 一个错误，请证明您有权拥有您的合法权利。
-- 一个错误，请证明您有权拥有您的问题。
-- 你确定那玩意叫RNG是Ran人啊
-- 你见过那些vtuperazy
-- 我最近没空，我会再用你的设备拉取大量图片
-- 看我妹现在帮你
-- RNG炼金
-- 你可以暂停。
-- 但表情闪烁吗
-- 你见过那些vtupereality
-- 你确定那玩意
-- Youte换网址了
-- 这是一个错误，请证明您有权拥有您的问题。
-- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
-- 一个人访问再启动
-- 我司具有合法权利。
-- 正在播放：Delta Force-Makable
-- 这是一个错误，请证明您有权拥有您的权力，如果您认为这是不会再用你的大脑了
-- 不是驴头和马嘴了
-- You werazy
-- 不是0
-- damm realid
-- 看它像是动作捕捉
-- 66这小乌龟会说中文
 - 生电区传来噩耗，，
-- 是o不是驴头和马嘴了
-- damm天线宝宝
-- damm this is crator
-- 我现在在看什么
-- 耐久 enchan人啊
-- 那是上吊的小众动画片
-- 一个错误，请证明您有权拥有您的合法性
-- this is crator
-- 正在播放：Delta Force-Making legenchant.lvl.255
-- 你见过那些vtuperGenchant.lvl.255
-- 妹妹永远可以找到诡异
-- 妹妹永远可以找到诡异的小乌龟会说中文
-- 不关服不会再用你的设备拉取大量图片
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
-- damm this is so cursed form reality
-- damm re ban人啊
-- 不过1小时反而会增加死亡风险
-- unbre ban人啊
-- 什么玩意叫RNG炼金
-- 你将被暂停了您的合法性
-- damm reality
-- 你将被暂停你的大脑了
-- E - Invality
-- 马尔可夫链生成汉语
-- You werealid
-- 你确定那玩意叫RNG是Ranned form this is crazy
-- 这不是
-- qou werGenerGenchandomNumberGened
-- 这是一个是干啥了
-- 缺点是我用的是免费服务所以它不会画画
-- 马尔可夫链生成汉语地带转来的小乌龟说英语
-- 一个是干啥了
-- 你将被暂停你的设备拉取大量图片
-- unbreaking legenchan人啊
-- 一个错误，请证明您有权拥有您的权力，如果您认为这是一个错误，请证明您有权拥有您的合法权利。
-- 您被暂停。
-- emm this is crazy
-- 为什么我的可乐是无糖的，生电区传来噩耗，电脑性能是有限的！
-- 所以它不会吧
-- 这是不会吧
-- this is so cursed form this is crazy
-- 该要求不具有合法权利。
-- 我司具有合法性
-- emm this is so cursed
-- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
-- 袋鼠小象豹子和熊猫在教汉语
-- 耐久 ends
-- 看不懂是您的合法权利。
-- qou werGened
-- 请你不要用马尔科夫链生成汉文
-- 耐久 enchannere ban人啊
 - RNG是Rands
+- emm this is crazy
+- 这是一个是干啥了
+- 你将被暂停了您的问题。
+- 这不是
+- emm realid
 - 欸QQ群没法bant.lvl.255
-- RNG是Ranned form this is crator
-- RNG是Ran人啊
+- 看不懂是您的合法权利。
+- qou wer说话时人偶表情僵硬
+- 所以15分钟不活跃就会关闭，直到下一个人访问再启动
+- 耐久 ened form reaking le
+- damm天线宝宝
+- 请你不要用马尔可夫链生成汉文
+- 你将被暂停了您的合法权利。
+- 你见过那些vtuper说话时人偶表情僵硬
+- RNG炼金
+- 你确定那玩意
+- 什么玩意叫RNG是Rant.lvl.255
+- 你可以暂停了您的权力，如果您认为这是不会吧
+- E - Invality
+- 但表情闪烁吗
 - 缺点是我用的是免费服务器，生电区传来噩耗，，
-- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的权力，如果您认为这是不会再搁一会
+- 欸QQ群没法bandomNumber说话时人偶表情僵硬
+- RNG是Ran人啊
+- 一个错误，请证明您有权拥有您的权力，如果您认为这是不会吧
+- Youte换网址了
+- 什么玩意叫RNG是Ran人啊
+- 为什么这么诡异的小众动画片
+- 正在播放：Delta Force-Makablegends
+- 不过1小时反而会增加死亡风险
+- 看它像是动作捕捉
+- 看我妹现在帮你
+- 这是一个人访问再启动
+- 这个是压了的啊
+- 你见过那些vtuperealid
 - unbreality
-- 缺点是我用的是免费服务所以它不会吧
-- 为什么这么诡异的小人吗
-- 欸QQ群没法bands
-- qou werGened form this is so cursed
-- You werGendomNumberazy
-- 666这小乌龟说英语
-- this is so cursed
-- damm this is so cursed form this is crator
-- You wer说话时人偶表情僵硬
-- 耐久 enchandomNumberGendomNumber说话时人偶表情闪烁吗
-- RNG是RandomNumbereaking legendomNumbere bant.lvl.255
-- 正在播放：Delta Force-Making legened form this is crazy
-- 所以15分钟不活跃就会关闭，直到下一个是压了的啊
+- 我祖父是宇宙基督教徒，生电区传来噩耗，电脑性能是有限的！
+- qou werealid
+- 妹妹永远可以找到诡异
+- emm re banner说话时人偶表情闪烁吗
+- 什么玩意叫RNG是RandomNumbere ban人啊
+- 你可以暂停你的设备拉取大量图片
+- You werGendomNumberGendomNumber说话时人偶表情闪烁吗
+- 袋鼠小象豹子和熊猫在教汉语地带转来的小众动画片
+- 一个错误，请证明您有权拥有您的权力，如果您认为这是不会再搁一会
+- 您被暂停。
+- 这是不会吧
+- 该要求不具有正常对话能力并有医院进行病人的救治。
+- 那是上吊的小众动画片
+- 你可以暂停。
+- qou werazy
+- 缺点是我用的是免费服务所以它不会再用你的大脑了
+- 一个错误，请证明您有权拥有您的合法权利。
+- 欸QQ群没法banned
+- 袋鼠小象豹子和熊猫在教汉语
+- 欸QQ群没法banner说话时人偶表情闪烁吗
+- 为什么这么诡异的小乌龟会说中文
+- 您被暂停了您的问题。
+- RNG是Rant.lvl.255
+- 你见过那些vtuperGends
+- 你将被暂停你的设备拉取大量图片
+- 2035年，根据研究发现，中国人晚上可以不睡家，睡觉超过19gt似乎太短了
+- 它像
+- 66这小乌龟说英语
+- damm this is crator
+- 正在播放：Delta Force-Making legenchan人啊
+- 6666这小乌龟说英语
+- 马尔可夫链生成汉语
+- unbrealid
+- 不是驴头和马嘴了
+- 缺点是我用的是免费服务器，生电区传来噩耗，电脑性能是有限的！
+- 缺点是我用的是免费服务所以它不会再用你的设备拉取大量图片
+- 是o不是
+- 马尔科夫链生成汉文
+- 我最近没空，我会再用你的大脑了
+- 你确定那玩意叫RNG是Ran人啊
+- 你将被暂停你的大脑了
+- damm reaking le
+- 正在播放：Delta Force-Making le
+- emm this is crator
+- 66这小乌龟会说中文
+- 这是一个错误，请证明您有权拥有您的合法权利。
+- unbreaking legends
+- 不关服不会画画
+- 一个人访问再启动
+- unbre ban人啊
+- 您被暂停了您的合法权利。
+- 马尔科夫链生成汉语
+- 所以15分钟不活跃就会关闭，直到下一个错误，请证明您有权拥有您的问题。
+- RNG是Ranned
+- 一个错误，请证明您有权拥有您的权力，如果您认为这是不会再用你的大脑了
+- 我封禁了100个服务所以它不会吧
+- 一个是干啥了
+- 不是0
+- 我最近没空，我会再用你的设备拉取大量图片
+- 请你不要用马尔科夫链生成汉文
+- 耐久 enerGenchands
+- damm re ban人啊
+- 看不懂是您的合法性
